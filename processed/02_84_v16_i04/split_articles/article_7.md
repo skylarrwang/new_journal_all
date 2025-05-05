@@ -1,0 +1,17 @@
+Publication date: 02/84
+Volume 16, Issue 4
+
+**Title: Tang Runs Dry**
+**Author: Christina Bakr**
+**Page number(s): 9**
+
+It was the only University-sanctioned event of its kind, an inter-collegiate beer drinking competition which began in the 1940s and became an integral part of the annual Yale Spring Weekend. 
+But on December 9th the Council of Masters rejected the JCSC's proposal for a modified Tang competition, thereby officially cancelling Tang once and for all. "It didn't seem to us that a drinking event was the kind of activity that a university should be putting itself · behind," Chairman of the Council of Masters Robin Winks explained. Well, fair enough, especially in light of the recently enacted legal drinking age of 20. But many feel that the dissolution of Tang leaves a hole in the social fabric of undergraduate tradition. 
+The JCSC (Joint Council of Social Chairpersons),which ran the event, has considered several alternatives, but none of them qualified as a satisfactory substitute. Ezra Stiles sophomore Ben Eason, a new JCSC Co-Chairperson, went so far as to propose tanging with root beer, but the Tang people "wouldn't go for it." Milk Tang was vetoed as "unhealthy." Apparently, Tang just isn't the same without alcohol. 
+But as long as Tang included alcohol, the University feared that it was sponsoring an illegal activity. "I think it's fair to say that if there hadn't been abuse of it in the past, Tang wouldn't be dead," explained Master Winks. "It's clear that the students who ran it did not take seriously the laws of the state." 
+If the Masters are concerned about observing the legal drinking age, one may ask, then why can't the event simply be moderated to exclude students under 20? JCSC Chairperson Ming Tsai presented just such a proposal in November to the Council of Masters outlining strict regulation of Tang events, but it was rejected outright. 
+"The reason· Tang was voted down wasn't because of the drinking age," claimed Tsai. "After talking to a couple of masters I realized that the issue is that the University doesn't feel it should sanction the event." 
+A. Bartlett Giamatti has made his position on the issue clear. "I'm not anti-traditional," Giamatti explained. "But a tradition which somehow says the University is going to provide free beer and practice space for the sole purpose of drinking fast does not strike me, in the climate which we are in, as a tradition the University ought to cling to. Frankly, it's very hard to defend Tang." 
+Despite the efforts of the administration to stop Tang, it is sure to continue in some form. In several colleges "secret" practices are held in students' rooms, and a number of Tang captains are planning underground Tang tournaments for the spring. There has been talk of trying to set up something formal at Toad's, or at the bastion of Yale tradition, Mory's. 
+But at least one master believes that the responsibility belongs to Yale and not necessarily to the students. "I'll tell you one thing," Timothy Dwight Master Robert Thompson said, "this is going to make me fight for a Student Union Center-a place where you would have large dances and other social activities. I think Yale owes you one. They took Tang away; something must be given." 
+'

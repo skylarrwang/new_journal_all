@@ -1,0 +1,38 @@
+Publication date: 02/14
+Volume 46, Issue 4
+
+**Title: Against the Tide**
+**Author: Ike Swetlitz**
+**Page number(s): 28-30**
+
+EXTRACT ARTICLE CONTENT:
+“I should have seen the peak of my house,” recalled Andy Weinstein. “It wasn’t there.”  
+On August 28, 2011, Weinstein stood next to his car on Philip Street in East Haven. The roads sloped down toward the coast. The formerly well-defined border of sand and sea walls had been erased. Hurricane Irene had made her way up the Atlantic shoreline, pummeling the coast and everything on it. Somewhere among the soup of seawater and debris sat the remains of Weinstein’s house. He set out on foot to find it. 
+
+Weinstein’s house was built nearly a century ago, when the beach stretched for fifty or a hundred feet behind the homes, a comfortable buffer. By the time Weinstein started renting the property in 2001, the beach had shrunk drastically. At low tide, there might be twenty feet between water and land. At the highest of high tides—twice a month, under the new or full moon—the water rolled up the beach and ran underneath his house which was elevated off the beach a few feet. When he stepped out of his house on the road-facing side, the water might cover his toes. Weinstein’s beach house was its own island in the Long Island Sound.
+
+Even so, the house remained dry. Weinstein never had water inside the house, and he saw little reason to worry about the hurricane. But just in case, the Friday before the storm, he took the day off from his job at the auto shop he owns to prepare his house. He packed up two days’ worth of clothes, boarded up windows and doors, and moved porch furniture inside. He drove about thirty minutes with his wife and daughter to their primary residence in Woodbridge, expecting to return to East Haven on Sunday afternoon. 
+
+Irene was downgraded to a tropical storm by the time she barreled through Cosey Beach on Saturday night. On Sunday morning, Weinstein got a call from his sister-in-law. She had heard that some houses on the beach were badly damaged, but she didn’t have any details. Weinstein drove down to investigate, expecting to find flooded roads, maybe some water damage.  
+A mile from his house, he saw water on the road. He parked the car and continued on foot. By the time he made it to Cosey Beach Avenue, which runs parallel to the shoreline, he was waist-deep.	
+
+Weinstein found his house—half of it, at least. Wet wooden beams lay crisscrossed in a pile of rubble ten feet high, with electrical wires looped over a dirty volleyball and hubcap. The other half was never found, swept into the Sound by the hurricane.
+Before returning home to break the news to his family, Weinstein walked to the house two doors down. His cousin, Sara-Ann Auerbach, who owns a home on Cosey Beach Avenue with her husband Hillel, had asked him to retrieve her jewelry and other valuables. She was afraid the water would wash them away. Faced with another pile of rubble, Weinstein took out his cell phone and called her.
+“There is no house,” he said.  
+“What do you mean, there is no house?” 
+ “There is no house.”  
+Top: Andy Weinstein’s house in 2010. Bottom: Clear skies follow Hurricane Irene’s destructive path. Weinstein crouches by the ruins of his Cosey Beach home, which had stood strong for nearly a century.
+
+
+In 2011, Hurricane Irene swept away much of Cosey Beach. It might have seemed fast to the inhabitants, but the damage had been centuries in the making. Waterfront development destroyed natural dune systems that held the sand in place, hastening erosion of the beach. 
+Beachfront homes are visibly losing their beachfront, their last line of defense against severe storms. Yet few residents are leaving Cosey Beach. Sara-Ann and Hillel Auerbach rebuilt their home atop thirteen-foot concrete pillars, but Weinstein and his family moved to Woodbridge for good. Some residents of Cosey Beach Avenue have worked to bring the sand back, but scientists caution that this only responds to a symptom, not the cause. The only permanent solution, they say, is to relocate.
+
+Curt Johnson has seen erosion sweep away dozens of feet of beach sand during his lifetime. The Executive Director of Save the Sound, a program run by the Connecticut Fund for the Environment, he grew up less than half a mile from Cosey Beach Avenue. Houses that once sat at a comfortable distance from the shoreline now butt up against the water. 
+“At some point in the not-so-distant future, [the beach] is going to move out from under them entirely,” Johnson said. Tanned and relaxed, he looks like he might have spent idyllic childhood summers on the beach, but now his hair has turned gray and his mouth curves down at the corners; it looks like he’s frowning even when he smiles. “And they’re going to have waves crashing around them every day. It’s horrible.”  
+Irene and Sandy killed nearly two hundred people and caused about $66 billion in damage, according to the National Hurricane Center. Tens of millions of dollars in federal funding is flowing into coastal areas like New Jersey to restore their beaches to pre-Sandy conditions. And all around the world, scientists and laypeople are on the lookout for more powerful storms, which many believe to be linked to climate change. Whatever is causing these storms, one thing is clear: the storms are putting lives and livelihoods in danger.    
+
+Beaches can protect residents from this danger. During Irene and Sandy, the houses with the least sand between them and the water were the most likely to be destroyed, according to James Tait, an associate professor of science education and environmental studies at Southern Connecticut State University. “Each wave is like a packet of energy,” he said. “That energy can do work. And that work can either be moving sand around or moving houses around.”  
+During the peak of the storm, Tait drove out to East Haven to see the waves in action. He parked near a retirement community about seven hundred feet from the beach, and at an elevation of about twenty feet higher than Cosey Beach Avenue. The storm arrived during high tide, which meant that the storm surge—the rush of ocean water brought on by a hurricane—flowed on top of an already-higher sea. In one of the photographs Tait took the morning of Irene, surf sprays around one residence, its neighbor house collapsed into the sea.  
+“When you go down there, [you think], ‘how could people possibly be so stupid to build their houses right now at the high tide mark?’” Johnson said. The answer: when many of the homes were built, over a hundred years ago, there was at least fifty feet of beach separating them from the water. The years of beach erosion have caused the distance between shoreline and houses to shrink, in some cases, to zero. 
+The amount of sand on a beach is determined by the type of waves that break there. When waves crash down, they loosen sand on the beach and suspend it in the water. If the waves strike rapidly, none of the suspended sand has time to settle down; instead it washes out into the Long Island Sound. Winter storms frequently bring these rapid waves to Cosey Beach. 
+If the waves strike less rapidly, sand carried from the ocean bed by the wave can settle on the beach before the next wave arrives. In this case, the beach grows. But less rapid waves powerful enough to deposit sand don’t reach Cosey Beach. Such waves originate from faraway storms and are blocked by the Long Island Sound. And there isn’t enough water between Connecticut and Long Island for the wind to form restorative waves. So the sand never comes back.

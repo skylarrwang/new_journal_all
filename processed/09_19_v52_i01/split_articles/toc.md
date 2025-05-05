@@ -1,0 +1,13 @@
+Publication date: 09/19
+Volume 52, Issue 1
+
+**TABLE OF CONTENTS:**
+- POINTS OF DEPARTURE—Mara Hoplamazian, Abby Steckel
+- SNAPSHOT: THE SIMULATION INVITATION—Elena DeBre
+- SNAPSHOT: AT HISTORY’S HELM—Helena Lyng-Olsen
+- CRITICAL ANGLE: THE RESEARCHER’S RESPONSIBILITY—Katherine Hu
+- COMING HOME CONVICTED—Keerthana Annamaneni
+- FEATURE: UNGUARDED—Lily Moore-Eissenberg
+- POEM: SICK POEM—Ananya Kumar-Banerjee
+- ENDNOTE: FAREWELL, SHIRU CAFE—Jack McCordick
+

@@ -1,0 +1,29 @@
+Publication date: 02/96
+Volume 28, Issue 4
+
+**Title: Cramped Quarters**
+**Author: Gabriel Snyder**
+**Page number(s): 9**
+
+The alliance between Locals 34 and 35 was forged during a job action, and every contract negotiation since 1984 has been punctuated by the threat of a hi-local strike. The recent decision to send Local 34 out before Local 35 was, therefore, unexpected. With a tinge of satisfaction in her voice, Deborah Chernoff, Federation of University Employees spokesperson, explains, "The decision was made to put a slight cramp in Yale's strike plans." 
+
+While many immediately questioned the motive of the move, Chernoff defends the strategy: "It became clear in these negotiations that the university was going to use the economic fears of these people and wait it out. Under these circumstances it seemed a better course of action to minimize the impact on people." 
+
+The plan arose from discussions in the office that Local 217-a union that represents hotel and restaurant workers in Connecticut and Rhode Island, including the staff at Mory's Temple Bar-Local 34, Local35, and GESO share at 425 College Street. In the small space, the leadership of the Yale unions are in virtually constant contact. Chernoff explains, "People started kicking the idea around over lunch, on some breaks, and in some little meetings that we have." By embracing the strategy, the unions have replaced the advantage of numbers with that of stamina. Chernoff continues, "We have our trust in each other and our suppon of each other and we think that ultimately that's the more powerful tool." 
+
+"We have a very firm belief that everyone deserves a union, that everybody ought to be in a union, and that is the best way to balance the otherwise unrestrained power that corporations-and we include Yale in that-have," explains Chernoff. 
+
+In the early 1980s, Loca135 attempted to organize the clerical and technical workers in Yale facilities in order to broaden their ranks. Between 1980 and 1984, Local 35's parent organization, the Hotel Employees and Restaurant Employees International, spent nearly one million dollars on the effon to form Local 34. Similarly, when GESO began its organizing drive in 1991, Locals 34 and 35 contributed finances and office space to the fledgling organization. GESO now pays its staff with its own dues and help from the Hotel and Restaurant Workers. Chernoff notes, "Practically, more people are better than less people when your primary strength is solidarity." 
+
+The federation shares its block of College Street with such bastions of university power and tradition as the Bursar's Office, the Flizabethan Oub, and Woodbridge Hall. Sharing the second and third Boors of the Ftrst Methodist Church at the corner of College and Elm Streets, Yale's unions have learned to live with each other. 
+
+Behind the plain beige doors off College Street are the church offices; up the stairs lies the unions. Like the rest of the free space in the office, the stairway landings are used for storage-in this case old picket signs. A double door leads into a dim hall that also serves as a file room. Before you get to the receptionist, there are two rooms packed with more file cabinets and the copier. A meeting room, one of the more spacious areas in the offices, sits off of the first storage room. At the end of the hall, the bulk of the federation office staff performs routine organizational functions such as handling dues and bookkeeping. 
+
+On the third Boor at the top of the stairwell, one room houses the leadership of Local 217, Local 34, Local 35, and GESO. With the room's high ceilings and light blue walls covered with union posters, there are enough windows to make the room seem bigger than it really is. Unlike the stereotypical corporate or government office, there are no panitions or cubicles. Despite the openness of the third Boor relative to the claustrophobic rooms downstairs, the entire space is vittually filled with clusters of desks that delineate "offices." The office furniture is a mish-mash of solid steel, pressboard, and vinyl. The floor is littered with copies of the New Haven Advocate and The NatU1n. 
+
+ough the room appears to hold one compacted collection of papers and union paraphernalia, it is actually carefully partitioned. In the corner to the right of the entrance sit the GESO desks. Posters protesting the university's treatment of its TAs are used like wallpaper. In the opposite corner is Pat Carter's desk, the head organizer of Local 34. Robin Brown, GESO chairperson, and Bob Proto, president of Local 35, claim adjoining desks. All three are scattered with papers. 
+
+Moving along the far wall, there are a few Local 217 desks, but most are taken up by Local 34 staff. At the end is Local 34 president Laura Smith's desk Covering most of the desktop are well-organized wire dividers with hundreds of manila file folders. Smith spends a lot of her time out of the office organizing, and her desk looks seldom used for much more than storing papers. Around to the right corner of the room is the common area of the third Boor where federation employees, Gordon Lafer (M. Phil. '91), research director, and Michael Boyle (PC '79), chief negotiator, have their desks and share space with the four union computers. Next to the computers are the Local 35 desks that , run along the wall towards the door. 
+
+From a makeshifr office waiting room on the second Boor, acrually just a chair wedged in a comer between the receptionist's desk and the door, you can see the heads of the federation clerical staff over the tops of file cabinets and haphazard stacks of folders and papers. Most of the light in the room comes from desk lamps. On an overcast day the room 
+9

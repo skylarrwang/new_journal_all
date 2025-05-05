@@ -1,0 +1,42 @@
+Publication date: 11/20
+Volume 53, Issue 3
+
+**TABLE OF CONTENTS**
+**Author: N/A**
+**Page number(s): 3**
+
+ 3
+FEATURE
+snapshot: LOOKING AT THE LIGHTHOUSE
+personal essay: STRAWBERRY FIELDS, FOR-
+EVER?
+photography: UNTITLED
+personal essay: MEMOIRS OF A FUTURE 
+WORLD-FAMOUS FEMALE JAZZ SAXO-
+PHONIST
+personal essay: ON BEAUTY
+creative: CALLIOPE
+point of departure: TEACHING UNDER 
+TRIAGE
+creative: GIVE AND TAKE
+verse: POEM, 12.1.20 (DEADLINE BLUES)
+verse: FIRST DATE
+verse: DRIFTING DOWN THE STREAM 
+verse: SESTINA
+photography: ERZURUM (TURKEY), 
+NEBRASKA, JERUSALEM, ASHWAN (EGYPT)
+endnote: ASYNCHRONY
+4
+8
+13
+14
+18
+20
+24
+29
+30
+31
+32
+33
+42
+43

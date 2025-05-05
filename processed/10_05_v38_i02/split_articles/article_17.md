@@ -1,0 +1,18 @@
+Publication date: 10/05
+Volume 38, Issue 2
+
+**Title: The Yale Debate**
+**Author: Not specified**
+**Page number(s): 14-15**
+
+EXTRACT ARTICLE CONTENT:
+Rebecca Livengood's delivery was as precise as her pearl earrings, starched blue shirt, and professional blazer. Her debate with Nick Shalek had begun pleasandy enough, with polite agreement on the importance of campus safety. But after winning the Democratic nomination for Ward 1 alder last spring, Livengood already knew that campaigning was not always pleasant.
+
+
+Livengood and Shalek are vying for the Ward 1 seat on the Board of Aldermen, a position that represents most of Yale's campus and for the past twenty years has been held by a Yalie, consistently vaulting them into extremely successful careers. Tonight, both candidates are positioned to inspire the city and its voters, and perhaps change their own lives.  Although Livengood has only held the Ward 1 alder seat since August, when she inherited it from Ben Healey, her long history of organizing in New Haven has given her the force of incumbency. She focused on the advantages of those relationships with the New Haven unions, student-environmental groups, and city leaders as a strength of her candidacy, one that she defended her roots in the convoluted politics of New Haven. "I am proud of the relationships I have built," she insisted, her voice strong.
+
+
+In his turn, Shalek insisted that he is the independent voice in the race for Ward 1 alder and a realistic representative for mainstream Yale, not an activist with knee-jerk leftist leanings. "I am a Yale student who thinks the University is fundamentally a great place," he explained. The top button of his shirt was undone and his sentences occasionally messy. His statistics, however, were sharp as he took the offensive on his favorite issue: creating jobs in New Haven. To hear him speak, it was as if Livengood had, in true activist fashion, spent her first month as Ward 1 alder lying in front of the bulldozers preparing to start construction on the Cancer Center until its projected jobs were unionized. For Shalek, any delay of the Cancer Center and the jobs it would bring to New Haven disturbed him on a professional as well as personal level. Two of his grandparents, he explained, died from cancer.
+
+
+The audience's gaze turned to Livengood, as she rebutted: "Two of my grandparents also died of cancer." She clarified the three conditions she looked for in responsible development: secure jobs, health care benefits for workers, and environmental soundness. In the audience's gathering of representative campaign staffers, journalists, and Yale College Democrats, she would advance projects like the contentious Yale-New Haven Hospital Cancer Center. As a member of the pro-labor Undergraduate Organizing Committee (UOC) and a supporter of the graduate union GESO, Livengood is often berated for her ideology and idealism. While opponents often criticize Livengood's support of UOC and GESO, deriding it as unrealistic, starry-eyed idealism, Livengood's association with these groups has helped her forge close contacts with important players in city politics.  When the attacks were launched, she was ready. Sitting next to her opponent before the gathering of representative campaign staffers, journalists, and Yale College Democrats, she would advance projects like the contentious Yale-New Haven Hospital Cancer Center. As a member of the pro-labor Undergraduate Organizing Committee (UOC) and a supporter of the graduate union GESO, Livengood is often berated for her ideology and idealism.

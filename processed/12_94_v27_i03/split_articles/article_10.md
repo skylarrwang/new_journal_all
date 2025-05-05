@@ -1,0 +1,31 @@
+Publication date: 12/94
+Volume 27, Issue 3
+
+**Points of Departure**
+**Author: David Gerber**
+**Page number(s): 5-6**
+
+Start Your Engines 
+If that young man walks down to the New Haven Coliseum on November fourth through sixth he too can join the thousands of satisfied visitors at Auto Expo Ninety Five. For a mere seven dollars he can see futuristic concept cars and world class racing cars and he can test his skills on the all-new Virtual Reality Racing Simulators. If char's not enough he can meer Fred Flinmone Rally Raven and his favorite sports stares from the New York Jers New York Rangers Hanford Whalers New York Yankees and rhe World Wrestling Federation all in an excicing and friendly armosphere. 
+
+But first he can fill out a Personal Quesrionnaire for a chance to win one of 150 Car Phones 25 pairs of Ice Hockey Tickets or Discount Cruises. Then he can look at the 1995 Lincoln Continental featuring the same classic lines with all new safety features. But that's for a Mature Crowd. He probably wants to look at the Escort-the third best-selling car in the U.S.A and the number-one selling car in the world. 
+
+Meanwhile he can chink abour what kind of driving he'll do-cross-country or commute or off-road. The Wagoneer 2000 is perfect for all of rhese. It's all Jeep. 
+DECEMBER 1., 1994 
+It's outfitted with an Omni-Trac All-Wheel Drive System. A 5.2 litre 220 horsepower engine moves the Wagoneer 2000 while Anri-Lock Disk Brakes with Engine-Modulated Traction Control bring ir to sure stops. Add rhe comfort and convenience of an inrerior with all the "necessities" to make driving enjoyable and the young man has a vehicle chat gives him command of any driving siruacion. 
+
+Across the showroom Oldsmobile wants to make his shopping experience as suaightforward and hassle-free as possible. Each vehicle has a low sricker price every day so a retailer can give him rhe besr price up front-such a good value that traditional discounts and rebates are jusc not necessary. Oldsmobile's new Aurora is anything bur rradirional. It is desrined co change the way rhe young man thinks about luxury cars. Wich a curvaceous yet strong m uscular shape its exrerior is entertainment and its underlying body struct ure is a Wonderful Marvelous Thing. 
+
+If he's a Sophisticated Buyer the young man can listen for thar distinctive sound of qualiry when he shuts the door. Then he can take ho me the laresr Porsche Carrera Cabriolet for $74,147. Then he can spin the Jeep Ski Wheel. Then he can fill out another Personal Questionnaire for a chance to win one of 150 Car Phones 25 pairs of Ice Hockey Tickets or Discount Cruises. T hen he can consider the Dual Climate Control Console-with no ozone-depleting CFC's of course. Then he can spin the Jeep Ski Wheel again. Then he can capture those days of the love affair with the hot rod and take it a step further with the Plymouth Prowler. Then he can fill out another Personal Questionnaire for a chance to win one of 150 Car Phones 25 pairs of Ice Hockey Tickets or Discount Cruises. Then he can tell his auto dealer he saw it all at auto expo. 
+-David G~rb~r 
+
+Eurail through Yale 
+While working in New Haven chis summer, I finally got the chance to see Europe. I didn't exactly go to Europe rather, Europe came to me. For two weeks a little bit of rhe Continent descended upon Old Campus in the form of 1,100 high school exchange students, hailing from various pares of Wesrern Europe, forming a scaled-down version of the European Communiry within the confines of rhese Ivy walls. And my Eurail pass co this European Community was the position I held as an Resident Assistant in this Continental gathering known as the Educatio n Foundation Language and Culture Camp, the largest of many organizations chat use Yale facilities over rhe summer. 
+
+The Camp provided exchange students a two-week orientation to rhe English language and American culture before rhey dispersed co host families all over rhe United States. Like Yale's fres h man orientation period- a.k.a. "Camp Yale"-this Camp saw Old Campus teeming with excited studenrs, ready to embark on a journey into another world. Along with chis excitement also came the fear of the unknown, which prompted the studenrs to move in packs of 10 or 20 (resembling a frosh class). These roving packs, moving in amoeba-like fashion, proved frustrating for some pedestrians, who were engulfed by "pseudopods" of blond-haired kids, speaking Swedish or German. 
+
+What was my role in all this? My duties as an R.A. entailed supervising and providing assisrance to the administrators higher up, much like a camp counselor. However, underlying these standard tasks, the most important aspect of my job was trying to dispel their misconceptions of Americans and American culture. This proved to be an interesting experience, as educational for me as it was for them. 
+
+Much of what these kids perceived to be American was gathered from the American pop culture imported into their countries. When I told one student I was from Southern California, she inquired whether or nor my address included the zipcode 90210. She assumed that since I attend Yale, I must be rich. And the rich in· California live beside the Walshes in Beverly Hills. Hence, by the transitive property of equality, I must live in Beverly Hills. It wasn't long before I informed her that student loan repayments would eat a hole in my pocket for a long time to come. For two German aficionados of gangsta rap, America was a fantasyland, occupied by gangbangers with big guns and loose women. The lesson they learned was that not every American packs a rod or drinks 40 ouncers. And not everyone watches television each waking hour or at least not more than five hours a day. And not everyone frequents fast-food restaurants daily. 
+
+To my surprise, there were a sprinkling of people of Asian descent, as well as other non-white Europeans. Although the numbers are small relative to North America, diversity is slowly breaking ground in European soil. The kids represented a variety of national cultures, each rich in irs own traditions, history, and differences. Not every Swede sees Ace

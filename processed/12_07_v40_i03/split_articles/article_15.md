@@ -1,0 +1,30 @@
+Publication date: 12/07
+Volume 40, Issue 3
+
+**Title: Into the Woodshop**
+**Author: Sarah Nutman**
+**Page number(s): 10-11**
+
+EXTRACT ARTICLE CONTENT:
+"What you have to do is put these together," says Mark Messier, pointing to pieces of freshly sawed wood sitting on an unfinished shelf. "Capisci?"
+A freshman listens silencly, wearing a look of bewilderment and stubborn resolve. "No capisci!" Messier continues emphatically, grabbing the two slabs to ready them for gluing. 
+lr's a typical Saturday in the Gosselin Woodshop tucked into the basement of Berkeley College. For nearly 15 years, Messier, a professional woodworker and cabinetmaker, has made the hour-long commute from Coventry once each week to help Yale woodworkers fashion everything from bowls to croquet sets. In his tenure as master woodworker, Messier -a man whose gray hair looks almost as grizzled as his fraying shirt and beat-up Columbia moccasins- has become more emblematic of the shop than the black-and-white photograph of its namesake, Edward Webb Gosselin. 
+
+But Messier seems disinterested in his legendary status. He brandishes a broad, jovial smile and starts to tell me about the room's history in epic detail: "There has always been a Berkeley woodshop," he begins. 
+He weaves the lore of the wood shop-its dimly lit, closet-sized origins off the Berkeley tunnel, its skeletal form in Swing Space, the society that used it to make mallets for their midnight croquet games-into the lore of his own life. 
+This latter yarn begins with the son of an insurance executive in a classic, 1731 New England house. Other than the tedium and odium of the insurance business, Messier, in the spirit of "the do-it-yourself generation" of which he counts himself a part says, "I didn't learn anything from my father." Still, he admires his father for putting _him to work on the house each weekend. He claims it fostered an appreciation for the old, wooden edifice. 
+As he describes the house, his tone lightens, shedding its customary sarcasm. 
+Messier's passion for his craft stems from the mischief of his youth. Though he carved his first bowl at age seven, Messier aClmits, "most of the rime I just made explosives." His exploits often went beyond mere tinkering. "W/e once tried to make a boat," he remembers, "but it didn't float, so we turned it into a go-cart." 
+His flirtation with woodworking'--part infatuation, part casual dating, never anything official followed Messier as he left the land of old ramblers and "real architecture" and headed west to Oregon. It was in this state · "where all · the houses are less than fifty years old"-that a twenty-something Messier took his first and last woodworking class. He had barely begun to construct a rosewood rocker by the conclusion of the course. 
+"So I bought a shop smith and finished the chair myself," he says nonchalantly, as if that had been the only option. A few years and "over a hundred picnic tables" later, Messier returned east, having taught himself how to frame, floor, and mold. 
+
+Standing at the lathe, Messier again extols the value of self-education. While he stands with a quiet, unassuming expertise over the student at the machine Berkeley Master Marvin Chun's mother he does little to guide her. In fact, a few moments later, he has wandered away from the amateur. 
+'~s long as you know how you can get hurt and avoid those pitfalls, you can do well," he says, before amending his words to include the optimism of all great teachers. "No, you will do well." Indeed, the only person who has ever gotten injured on Messier's watch is himself. 
+Asked to describe some of his most memorable projects, Messier displays a lingering grin that seems to suggest he should hold his tongue. 'We picked up and lifted a house nearly 18 inches," he laughs. "I almost killed myself. You see, I had my ·head on the ground and three inches above .me was the cast iron drain for the toilet. The drain dropped two." He leans toward me to whisper the moral of the story: "But I learned how to jack a house." Most of Messier's stories share a similar lesson: one learns more by doing than learning how to do. But the self-reliant Messier is too playful to be preachy. He likes to tnock himself, and he likes to mock Yale even more. Chuckling, he explains that he is often asked to carve names on plaques for different colleges. "I've never done it in my life" he says. 
+
+These days, Messier rarely finds himself an inch frmn death. He runs a restoration company, recently re-named Birch Bend Builders, out of his "kick-ass shop." 
+But he's content with the tamer projects of Birch Bend building kitchens, domg historical renovations, and insta11ing bathroom stalls. And he always looks forward to his Saturdays in the Berkeley basement. ''The students keep me young," he says. "Every year I get to meet 18- and 19- year olds. It's a fresh perspective." · Certain students stand out in his memory. He remembers one heavily pierced disciple who had quit high school as a junior and another who was commissioned to make conductors' batons for a campus orchestra. 
+Messier worries that these types of students are· growing extinct at Yale. With each passing year, he has noticed that students know and care less and less about his craft. "It used to be that students had a grandfather not father, mind you, but, still, a grandfather that was a woodworker. Now," he laments, "there's a detachment. We're living in a material world." Messier fears that the art of woodworking will disappear in the name of lofty pre-professionalism. 
+"Do you know how many parents think a woodshop in a college is ridiculous?" he asks. But Messier refuses to feel sorry for himself. Instead, he takes his own advice, doing exactly as he told a woodworker one Saturday morning as he left him alone to sand: "If you get something that's really bad, just deal with it." 
+TN 
+Sarah N utman is a .freshman in Trumbull College.

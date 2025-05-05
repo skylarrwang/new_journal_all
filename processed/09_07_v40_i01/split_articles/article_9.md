@@ -1,0 +1,26 @@
+Publication date: 09/07
+Volume 40, Issue 1
+
+**Title: Dicking Around**
+**Author: Laura Bennett**
+**Page number(s): 8-9**
+
+EXTRACT ARTICLE CONTENT:
+A Connecticut P.I. enjoys the spy life.
+
+Gil Whitlock wears a leather jacket and aviator shades. On his website; he poses toughly in front of a black sedan, arms crossed and chin tipped slightly upward. His face, complete with husky moustache, has the jaded, callous glaze of a man who's seen it all and perhaps he has. Whitlock is a private investigator, based about 25 miles outside of New Haven in Newtown, Connecticut. Fifteen years ago, armed with several decades of crime-fighting experience, raw determination, and a big dream., he founded Associated Research and Investigations, Ltd.
+
+In person, Whitlock has none of the swagger that one might expect from his digital identity. Paternal, earnest, and instantly likeable, he says things like "silliness" and "gee, that's cool." He talks slowly, chewing on his words as though mulling over ways to make his work sound exciting. Whitlock is amicably self-effacing, jovially prefacing his interview with "Pardon me, I'm not a Yale graduate." His slick website persona and burly credentials — criminal justice major at Western Connecticut State University, military policeman for the U.S. Army — seem little more than a window display. He runs his private investigation business out of his suburban home and speaks wistfully of a childhood spent idolizing the stars of *Magnum, P.I.*, a TV show featuring the glamorous escapades of a private investigator in Hawaii. "I just thought: 'what a cool way to make a living,"' he remembers.
+
+
+Whitlock's dream was once to join the FBI. When he talks about it now, he grows prim and matter-of-fact; he knows everything there is to know about the Bureau, and is proud of it. He knows the feds have a series of exacting physical prerequisites, including restrictions on height. "Short agents don't project the right image," explains Whitlock. He launches into a tale of FBI agents caught in a shoot-out after an armored car robbery in Florida. One agent lost his glasses, and, rendered blind and defenseless, was killed while feeling around for his gun. Incidents like these have resulted in the agency's stringent vision requirement. Whitlock has failed it twice. "So that's why I didn't pursue my dream." He concludes the story with a forlorn sigh.
+
+Instead, he went to work for the sheriff's department in Fairfield County. Eventually, he attended the State Police Academy in Connecticut and was sworn in as a police officer with the fraud unit in the labor department. "I did not like working for the state," Whitlock says. "I always had a problem with all the red tape. I spent as much time writing reports about what I was doing during the day as I spent doing it." He felt all the glamour and romance of his childhood fantasy — high-speed chases, stealth investigations — fading into a relentless bureaucratic labyrinth. Looking to avoid a wearily plodding professional future, Whitlock did some research, talked to some investigators, and decided to venture out on his own. It was a risk, he knew, to abandon the stability of a life nestled securely in the arms of the state. Gil had to turn in his government-issued car upon his resignation. He recalls that the manager of the garage was unable to believe that anyone would relinquish a free car. "He looked at me like 'are you an effin' moron?"' says Whitlock.
+
+
+The licensing process to become a private investigator in the state of Connecticut usually takes about six months. It involves a thorough examination by state police, extensive paperwork, fingerprint submission, and five years of full-time experience as an investigator with a law enforcement agency. Then, explains Whitlock, it's all a matter of getting your name out there. His meager staff consists of his fiancee, his son, and a couple of other agents, but it's clear that the venture is primarily Gil's own project. His company tackles an array of legal and personal issues. "This is no normal nine-to-five job," he says with a tinge of bravado.
+
+And unless your business conducts insurance fraud investigations, uncovers relationship infidelity (his website proclaims: "Is your significant other no longer interested in sex? Find out why!"), upbraids deadbeat parents, or uses a polygraph, he's right. It's a vast and varied field. "We're always doing something different," Whitlock explains. "People want to file lawsuits over the silliest things. These days, everyone is so litigious." Whitlock readily launches into colorful accounts of specific investigations — no names included, of course. Once, he got a call from a woman in Israel who had found his site on the internet. She told him that she'd come to him for help because his name meant "joy" in Hebrew, and she was convinced that he would be able to find her mother. She'd been adopted in Canada and believed that her birth mother was living in Connecticut. Adoption cases, Whitlock explains, are difficult, as many of the records are sealed. But in the end, he was able to find the absent parent, who lived just four miles from his home. "Wow, talk about fate," he says, still awestruck. "That is just great."
+
+
+Recently, another woman contacted

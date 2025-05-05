@@ -1,0 +1,212 @@
+
+## Can Yale be Neutral?
+### December 6, 1977
+
+In 1970, a non-profit group called
+the Project on Corporate Responsibility
+sponsored a campaign among
+shareholders in General Motors
+advocating increased shareholder input
+into the formulation of that company's
+public policy, and increased attention
+to the social and political consequences
+of corporate actions. The trustees of
+the Yale Corporation, which holds
+103,600 shares in GM, abstained from
+voting on the shareholder resolutions.
+They did so, they explained, " on the
+principle that the Fellows of the
+Corporation do not, and should not,
+have the power to take a corporate
+position on issues of a social or political
+nature. This principle derives from the
+philosophy that a university is a
+collegium or forum for the expression
+of a wide diversity of views. This
+conception is the cornerstone of
+academic freedom." In doing so, the
+Yale Corporation took the stance that
+its investments were "neutral," and
+that the mere act of owning and
+benefitting from shares in no way
+implies support or criticism of a
+company's actions. The trustees
+maintained that to remain silent is to
+remain neutral.
+
+A year later, this statement met with
+serious questioning in a seminar
+project led by Professor John Simon of
+the Law School. The project
+formulated a set of guidelines for the
+consideration of ethical questions
+related to investments. Yale responded
+by setting up the University-wide
+Advisory Committee on Investment
+Responsibility. This body received as
+its sole power, however, the task of
+reviewing shareholder resolutions
+introduced by other shareholders and
+advising the Corporation on how it
+should vote. The Advisory Committee
+has never introduced a resolution of its
+own, and its recommendations are not
+
+Yale's investments in companies
+operating in the Republic of South
+Africa pose a serious challenge to this
+stance of neutrality. It is becoming
+increasingly obvious that American
+investments there both directly and
+indirectly support the racist regime of
+John Vorster. Examples of direct aid
+are well known: IBM (Yale shares
+67,650) leases computers to the South
+African police and prisons for the
+enforcement of the repressive passbook
+laws; GM and Ford (Yale shares
+103,600and 127,500 respectively)
+supply trucks to the military; Citicorp
+and J.P. Morgan (Yale shares 36,900
+and 35,200) made loans totalling
+$110 million to the South African
+government in 1976 alone. But the
+presence of foreign investment by its
+very nature, through the promotion of
+capital-intensive-and highly
+technological industry, supports the
+white regime indirectly by serving only
+the needs of the white population.
+Ambassador Radha Krishna Ramphul,
+upcoming President of the U.N.
+Security Council, told the Council in
+March of this year,
+
+"It is crystal clear that foreign
+investment is not geared to improving
+the situation in Southern Africa at
+present. Foreign funds are not directed
+to agricultural development in the
+rural areas or to social programmes
+which would benefit the life of
+Africans. The South African
+government is not using those
+funds... to dismantle apartheid in some
+absentminded way. To the contrary,
+thanks to foreign investment and
+foreign loans, the South African
+government has been able to build and
+maintain a garrison state."
+
+In addition, the recently enacted South
+African law requiring foreign concerns
+either to produce what the government
+orders or to face nationalization of
+their assets makes every corporation,
+willingly or unwillingly, an accomplice
+to the continuation of apartheid.
+In view of such evidence, it is plain
+that American corporate investment in
+South Africa is by no means neutral,
+but is a bulwark in the fortress of
+apartheid. This fact calls Yale's
+supposed neutrality in investments
+into serious question. If Yale continues
+to reap the benefits of the profits on
+oppression in South Africa and
+remains silent, can it still claim that it
+is taking no stance? Is not this very
+silence a position in support of foreign
+investment in South Africa, in support
+of apartheid?
+
+-by Nick Olcott and Alisa Klaus
+
+For those of you who do not speak
+Scientist, the title of writer-director
+Steven Spielberg's latest feature
+describes an intimate inter-planetary
+rendez-vous. Close Encounters of the
+Third Kind is not a futuristic
+documentary about inter-earthling
+perversions. Rather, it is an allegorical
+sci-fi melodrama about two people
+whose intitial, illuminating brief
+encounter with a U.F.O. leaves them
+haunted by its mysterious shape untıl
+they find cosmic vindication of their
+vision. Close Encounters is an
+enjoyable minor fantasy on eternal
+themes, but Spielberg's theological
+premise is shamelessly commerical and
+absurdly simplistic. Alas, at the film's
+end I found myself quite as lost in the
+proverbial stars as I had been when I
+hopefully paid my $4.50; and to my
+sense of injury at the poverty of the
+spiritual transaction was added the
+equally enduring (albeit less
+existential) insult of actual penury.
+
+After the film opens with the
+traditional blinding explosion of white
+light, the director thrusts us inside a
+Mexican desert sandstorm reminiscent
+in ferocity of the Seven Plagues of
+Egypt. Here scientists are conducting a
+search for clues regarding the existence
+of extra-terrestrial life forms. When
+an inexplicably contented old man
+stammers in Spanish that "the sun has
+sung" to him, it is clear to all and
+sundry that something is rotten in the
+solar system. Spielberg then transports
+us to the little house on the prairie in
+Muncie, Indiana, where Jillian Guiler
+(Milinda Dillon) lives with her toddler
+son, Barry. To his mother's horror,
+Barry is lured into the night by
+seductive extra-terrestrial vibes. She
+gives chase and catches him on a
+deserted highway where both Guilers
+run into Roy Neary (Richard Dreyfus),
+a neighbor who claims to have seen an
+Unidentified Flying Object. As the
+adults stand arguing by the roadside,
+several 1977-style flying saucers fly by.
+Barry, delighted by the evocative
+conical Shape he perceives, trills out,
+"Ice cream!" Although Ronni Neary
+(Terri Garr) is understandably skeptical
+when her husband recounts his
+adventures, reports of strange
+phenomena all over the world (the
+earth) are released shortly, and Roy
+and Jillian rightly begin to suspect that
+the fault is not in themselves but in
+their stars after all.
+
+In one of the picture's most striking
+scenes, little Barry is kidnapped by
+clouds of fire. Despite his mother's
+desperate attempts to keep him locked
+in the house while star wars rage
+outdoors, he unerringly walks to the
+single unlocked door and opens it. The
+visual allusion to The Wizard of Oz
+becomes manifest: standing on the
+threshold of a singing sun, Barry looks
+for all the world like Dorothy opening
+the door from her black-and-white
+Kansas homestead into the infinitely
+more vivid polychromatic Land of Oz.
+Like a supersonic Pied Piper, the
+U.F.O. charms the boy out into the
+glare and sweeps him off his feet.
+Jillian and Roy become obsessed
+with the Shape. She cannot stop
+sketching it, while he sculpts it in every
+dollop of shaving cream, every
+spoonful of mashed potatoes. Each
+senses the importance of the cryptic
+image, yet neither can break the code.

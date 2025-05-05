@@ -1,0 +1,48 @@
+Publication date: 04/13
+Volume 45, Issue 5
+
+**Title: Solutions to Scale**
+**Author: Ashley Dalton**
+**Page number(s): 16-18**
+
+EXTRACT ARTICLE CONTENT:
+The Connecticut Mental Health Center rethinks a doubly-marginalized population.
+
+
+Within the sepia-toned cafeteria of the Connecticut Mental Health Center, Serena Spruill is a vision in dazzling Technicolor. I find her seated in a plastic chair, dressed in a rainbow poncho which only slightly conceals a flashy Obama T-shirt. A fist-sized wooden cross swings from her neck, and a Rastafarian beanie tops her hip-length dreadlocks. In a world beyond the beige rooms of CMHC, Spruill’s size might stand out more than her oufit. She is close to six feet tall and weighs over three hundred pounds.
+
+And she isn’t happy about it. 
+“I look at myself, and I realize—what you’re seeing here on the outside doesn’t reflect who I am on the inside.” Spruill motions to the rest of the cafeteria. “Everybody around here sits around like blobs,” she says. “But I’m trying to make my life better. I want to improve my health.”
+
+Spruill’s weight struggles started fifteen years ago, when she was diagnosed with paranoid schizophrenia. Her doctor at CMHC started her on an antidepressant and then an antipsychotic. The medication worked—Spruill was happier and stopped hearing voices. But like most medications of its kind, it had one significant side effect: increase in appetite. In her first year of treatment, Spruill gained almost one hundred pounds. Her cholesterol rose and she contracted hypertension and type II diabetes—not uncommon for patients on antipsychotic medicines. Since then, she’s participated in weight loss studies and joined an African dance troupe. She attends bi-weekly exercise classes, and consults a nutritionist. She shops for groceries at health stores and farmer’s markets. But she still hasn’t seen any significant weight loss. 
+Spruill resists attributing her obesity to the side effects of her anti-psychotic medication: “If I did what the nutritionist told me to do, I wouldn’t be overweight. But I just eat too many carbs,” she said. “You see, it’s the pills, but it’s also me.”
+
+Because of her weight, Spruill—and sixty percent of seriously mentally ill patients in America—is four times more likely to contract and die of heart disease, and likely to die twenty to twenty-five years earlier than the average American. In the past ten years, CMHC has provided patients with formal weight loss trials, exercise groups, a fully-equipped gym, healthier cafeteria food options, a weekly farmer’s market during the summer, and, most recently, a primary care clinic providing nutritional information—all without any cost to the patients. But somehow, nothing seems to work, not even for highly motivated patients like Spruill.
+
+
+Before the 1990s, most Americans fell within a normal body mass index (BMI) range of between 18.5 and 24.9, and the mentally ill were a bit thinner than most. Now, over thirty-five percent of Americans adults are obese, and almost sixty percent of the mentally ill are severely obese. What has changed for the mentally ill is in part what has changed for the American population as a whole: now, as never before in human history, foods high in carbs, calories, and fat are cheap and readily available in our country. But the increased accessibility of processed food is not all that has changed for the mentally ill. 
+The miracle of anti-psychotic medicines—beginning in 1950, with the introduction of Lithium—which can relieve the symptoms of mental illness, exacerbated the problem. Their appetite-increasing side effects made gaining weight all too easy. Additionally, since many people with severe mental illness struggle to secure education or employment, they are likely to be very poor and, as a result, have limited food options. Psychiatric hospitals suddenly had a major obesity problem on their hands.	
+CMHC was one of the first mental health institutions in the United States to try to tackle this problem, through clinical efforts, like weight loss trials, or holistic efforts such as philanthropically-funded farmer’s markets. Their fight against obesity in the mentally ill population began in 2004, when Dr. Cenk Tek, who specializes in schizophrenia, became alarmed about his patients’ weight.
+
+“The first year I was here, two people died of heart disease,” says Tek, “I saw that it is not just a statistic that these patients die early. You are living with them sometimes, you take care of them, you establish a relationship with them… I have some degree of responsibility here.” 	
+
+In response, he developed a weight loss program called SIMPLE (Simplified Intervention to Modify Physical activity, Lifestyle, and Eating), whose structure was comparable to Weight Watchers but with less complex guidelines. During its four-month clinical trial in 2004, SIMPLE taught a group of CMHC patients about the dangers of emotional eating, the benefits of exercise, and how to shop for healthy, affordable foods at the supermarket. But most importantly, SIMPLE emphasized education and weight-monitoring—efforts that have been proven to help patients lose weight. 
+They were successful within the terms of the study. On average, participants lost five percent of their body weight, and they kept it off for another six months. But when the monitoring stopped, participants started to gain back the weight. Now, five years later, all the participants are back where they started.
+
+Tek stills keeps up this monitoring, however, in a less formal way. “Everyone who comes into my office gets on the scale,” he insisted, despite my protestations, “Even you.”
+
+This forced confrontation of one’s body size—an experience that was painful for me and is painful for many—is supposed to help people lose weight. But none of Tek’s patients seem to be doing so, and with this in mind, I am wary when Tek says that  SIMPLE will help CMHC patients once it is finally reviewed and certified. If the general American population is any model, my suspicion is warranted. Only 27% of Americans who participate in Weight Watchers, for example, succeed in maintaining their new weight for two years.
+
+Tek still assures me that SIMPLE can work. He explains that his patients have different motives and goals for weight loss, blaming the failure of programs like Weight Watchers on their business model: they primarily target people trying to get beach bodies. Tek is not running a business, or even trying to make his patients thin. He just wants them to be healthy. “I am dealing with very sick people,” he says. 
+What really separates SIMPLE from other programs is its idea that people don’t need to be thin, or even a normal weight, to be healthy. They can be somewhat overweight and still prevent hypertension, type II diabetes, and heart disease—if they’re living a healthy lifestyle. People who start walking around the block and buying canned veggies at the grocery store can prevent the onset of many fatal health problems. 
+It sounds easy—so why is it so hard? Perhaps because I am not the only person who sees more than a number when they get on Tek’s scale.
+
+
+Most health care institutions have invested in Tek’s methods, including the new Wellness Center within CMHC. The Wellness Center is a subsidiary of Cornell Scott Hill-Health Center, Connecticut’s oldest and largest community health center, and it provides free primary health care to all CMHC patients.
+
+The only marker of this recently opened and long-anticipated office is a small printed sign taped to a light wooden door; I almost missed it among the many bulletin boards. For now, it is empty: the Wellness Center only opened a week ago, and most patients don’t yet know it exists. But doctors assure me that once the word does get around, the Wellness Center will play a vital role in helping CMHC patients lose weight. It will monitor the weight of every patient who comes in, a requirement of the federal grant that allows the Wellness Center to exist. Additionally, nurses will educate patients on healthy lifestyle choices and the effects of their obesity-related diseases.
+
+John Brenner, the primary nurse practitioner at CMHC’s new Wellness Center, has worked at other primary health care clinics in the past, and attests to the value of regular weight monitoring and education over the long term. He says that at clinics, he explains the issue of obesity and the complications of hypertension and diabetes to patients some thirty times a day. They are very receptive to this education, he says. “A patient will walk out saying, ‘Wow, I finally get this. Thank you, no one has ever explained that to me before.’ And even if that level of understanding is very low, it’s better than where they were before.”  
+
+Brenner reports that at the other Cornell Scott Hill-Health Center clinics, the numbers suggest that weight monitoring and education are effective. “If this population is similar to other populations Cornell Scott Hill-Health Center has been treating, then this center should help people with weight—even if in just a small way,” he told me matter-of-factly. 
+His claims will be tested in the next few years—if CMHC can build up enough patient volume to keep the Wellness Center alive after the federal grant money runs out. The hospital hopes that if it can attract enough patients, and enroll more of them in Medicaid and Medicare, the Wellness Center will be sustainable. But first they’ll need to get enough patient volume to fill up all the appointment slots.

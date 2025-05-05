@@ -1,0 +1,42 @@
+Publication date: 04/91
+Volume 23, Issue 5
+
+**Title: WYBC: A Balancing Act**
+**Author: Laura HeymCLnn**
+**Page number(s): 19-21**
+
+EXTRACT ARTICLE CONTENT:
+In its November 1990 issue, the progressive rock magazine SPIN put WYBC at the top of its list of "The Best College Radio Stations." But not everyone at the station thinks the Yale Broadcasting Company deserves the award. "The rating is ridiculous," said disc jockey Jonathan Zittrain (DC '91). "I would say not even five percent of Yale students listen to WYBC." The station management, however, has larger concerns. Unlike most college radio stations, WYBC caters to an audience beyond the University. 
+
+With 1200 watts of power, the FM station reaches listeners as far away as Hartford. More importantly, it targets listeners with money to spend. One of the few college radio stations in the country with a commercial license, WYBC, which gets no direct funding from Yale, depends on advertising receipts to stay afloat. "Our mission is not Yale entertainment," said Caroline Drees (TC '93), general manager of WYBC. "The Yale community consists of only 10,000 people. Our music is geared to those who can generate revenues for us." 
+
+As a result, WYBC tries to appeal to a wide spectrum of tastes. This means jazz in the morning for the drive to work, urban contemporary in the afternoon, and alternative rock for the rest of the night. It also means classical, blues, folk, and even a "Sounds of Ireland" format on the weekends. "It's a damn good station," said Manuel Rodriguez, vice president and general manager of WPLR, another local radio station. "On the FM band, no one's doing what they're doing." 
+
+But trying to maintain this range of formats under the umbrella of one outfit makes WYBC a bit schizophrenic. Within the station, program loyalty proves divisive. "Each format at WYBC is a cohesive bunch of people," said Training Director Orin Herskowitz (SY '93). "But as a station, there's very little unity." 
+
+While students head the Jazz and New Rock programs, New Haven residents direct and dominate Spectrum, the urban contemporary format. Spectrum, commanding eight hours of airtime each day, rakes in the most cash for the station. While other programs boast a racial mix, Spectrum's DJs are almost exclusively African-American. "The major conflicts are between Spectrum and other formats," said Ted Friedman (TD '91), New Rock program director. "Race, although it goes unstated, is as much an issue as anything else." 
+
+Over a third of the people spinning the discs at WYBC come from New Haven. Community and student volunteers work side by side as disc jockeys and format heads. But at the managerial level, students and community members don't have an equal voice. Yale regulations protect student leadership at WYBC by requiring all the station's administrative decisions to be made by undergraduates. An Executive Board-composed of five students-runs the station, under the supervision of a Board of Governors. One non-voting member represents New Haven volunteers on the Executive Board. "It causes difficulties in some respects," said Drees. "Community members work very hard, and they have no vote. But we don't want to risk our status as an undergraduate organization." 
+
+Some on the other side of the Ivy wall don't buy it. "Community members need a vote," said Mia Duff, Spectrum's format director. "We can say whatever we want, but when the decision is made, it doesn't matter." Spectrum DJs believe the money their program generates should buy them a voice. "Spectrum is the main source of revenue for the station," said DJ Andrew "Big Daddy" Guilford. "Our popularity in the ratings shows we deserve a vote." 
+
+DJ opinion on station tension is as varied as the WYBC format. Although Duff feels the situation is "improving," Zittrain is more blunt. "There's constant tension between community DJs and undergraduates," he said. "The community members see the highfalutin' kids come in and have all the power. It's an adversarial system." While all station DJs are part-time workers, some New Haven DJs think students' hectic schedules make their commitment to WYBC more erratic. "We're here to really learn radio," said Guilford. "For some students, it's just a hobby. They don't take it seriously." 
+
+During Yale vacations, the New Haven DJs run the show and keep the station operating full-time. In the summer, the absence of student DJs means that their names may not be on the tips of listeners' tongues. "It's rare to have a student DJ who is well-known in the community," said Bill Steiger (SY '91), Jazz format director. 
+
+The University's three-month summer hiatus allows local on-air personalities to hone their craft and establish a listening base. 
+
+Promotions such as the Spectrum SummerFest-a series of events in local parks-keep the "Spectrum Air Force" in touch with its audience. "It's over vacations that the really cool things happen," said Herskowitz. "In fact, much of what happens at WYBC happens because of the community members. They have the time and the commitment." 
+
+In the long run, however, community members don't get more time at the station than the students. Because the Executive Board is composed entirely of undergraduates, it sees a complete turnover every four years. To keep students in power, and to insure WYBC's status as an undergraduate organization, the station added a rule to its bylaws in 1985 limiting community members to four-year stints. As a result, no New Haven DJ can use seniority as a claim to control. "The four-year rule was created by Yalies to get rid of townies as soon as they could," said Sam Tilery, former DJ at WYBC, now the promotions director for WPLR. "In my time, we all worked together." 
+
+Community members aren't the only ones to struggle with students for control of the station. In 1989, WYBC's tremendous financial difficulties-caused primarily by student embezzlement of station funds in the early 80s-grabbed the attention of Dean Betty Trachtenburg. When the administration threatened to shut the station down, WYBC hired an executive director to run the station's daily operations and restructured its bylaws to give the Board of Governors more financial control. 
+
+Students feared they were losing power. Determined to protect their turf, they convinced the University to release the executive director at the end of her contract. Since then, the University's involvement has been minimal, and even accommodating. Yale's administration virtually ignores the $56,000 that the station still owes the University. "We're not pressing the debt at all," said Dean Trachtenburg. "That's really on the back burner." The University may not be forcing the issue because WYBC proves quite an asset to Yale. WYBC's license from the Federal Communications Commission is worth at least $15 million alone, a value that increases daily as the number of available frequencies dwindles. "The University is not worried about the loan because the appreciation value of the station probably adds another zero," said Zittrain. "What's $56,000 in the face of $560,000?" 
+
+WYBC's largest contribution to Yale may not be financial. Student management sees the station as a bridge to the New Haven community. "WYBC is very valuable to Yale," said Steiger. "It is one of the few tangible things that Yale can point to and say we are doing for New Haven. This is really important to the minds of the administration." A 1961 addendum to WYBC's bylaws crystallizes the image of community involvement the University wants for the station: "a communications link between the Yale community and the surrounding area, bringing the resources of the University to its neighbors, and fostering a closer contact between the two groups for the benefit of both." 
+
+But by keeping students in charge, Yale puts definite limits on the equality of this relationship. Despite the fact that area listeners fill the station's coffers, the University sees its students as its main responsibility. While WYBC can give community members a start in radio, it can't help them go all the way. "I became very frustrated," said Tilery. "I was devoted, sometimes spending seven days a week there. But if you want to go any further in radio, you have to get out of WYBC." 
+
+
+Laura HeymCLnn, a senior in Saybrook, is on the staff ofTNJ.

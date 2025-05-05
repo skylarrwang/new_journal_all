@@ -1,0 +1,24 @@
+Publication date: 12/07
+Volume 40, Issue 3
+
+**Designing Your Own Major at Yale**
+**Author: Daisy Atterbury**
+**Page number(s): 8**
+
+THE PRINCETON REVIEW, IN ITS LATEST e-schpiel of unhelpful and unsolicited advice, counseled me, "While it is true that choosing the proper major early on can help spare years, possibly even decades, of personal agony, the major you choose will neither predict nor guarantee your future." In other words, choosing a major is a lose-lose situation · choose incorrectly to devastating effect or make the right decision to. . . no effect. 
+
+In the hope of circumventing "decades of personal agony," coundess Yalies vacillate wildly between fields; they sweat over lists of prerequisites for Philosophy and blanch at pages of requirements for Physics. There are so many EP&Es and MB&Bs to keep track of that drawing letters out of a hat starts to grow appealing. Fearing that anything that actually piques their interest will condemn them to lives of unrelenting hardship, many freshmen are tempted by the pre-professional track. But for the select few who remain discontent with the existing programs of study, there is a different approach. Toss the blue book out the window entirely, and pursue a special divisional major. 
+
+Rather than trying to bend preexisting disciplines to their interests, special divisional majors construct their own academic infrastructure. Sarah Kabay TD '08 is majoring in Poverty and Development. She studies social inequity, its causes, and its potential remedies, taking classes in economics, history, anthropology, sociology, and area studies. "The courses I wanted to take did not fit into any pre-existing major," Kabay explains. Another student, Mona Elsayed JE '08 is majoring in Art Semiotics "an interdisciplinary approach to modern visual media." Elsayed combines classes on aesthetics, theory, and visual and material culture with studio classes in the Art and Architecture schools. Kabay and Elsayed are part of a tradition of a small number of students each year- usually only one or two who succeed in designing their own major. 
+
+The options are limidess, but only a few are plausible. Students hoping to major in Mario Kart will be disappointed. The Special Division Major is only for the determined and self-disciplined. According to Elsayed, "It becomes a sort of survival of the fittest the DUS will suggest that the idea is maybe not appropriate for an undergrad degree, or students will give up because the proposal process is rigorous and the wait is long." 
+
+Students first reseat;ch the area of study and set up an initial meeting with DUS of the special _ divisional major, Jasmina Beserivic. Next, students write the proposal, which must take the form of and present all the information included in the blue book descriptions of Yale's offered majors. The mock blue book entry must list not only the classes the student plans to take but also all courses that Yale offers that will be relevant to the proposed major. This document, usually about ten pages long, then goes before the Committee on Academic Honors and Standing, which approves a discouraging proportion of the thirty or so proposals it receives each year. Application to the major usually starts during fall of sophomore year and can last up to ten months. During this time, students rnust maintain a backup plan and continue to take classes for a regular Yale major .in case their proposal is not accepted. 
+
+But the work doesn't end outside the Dean's office, and students are often left in the job market's dust. Having a major all to one's own means doing a lot of clarification especially for employers. "I almost always have to explain what I mean by semiotics, even to professors or students who have encountered the subject before," says Elsayed. Employers are usually receptive; though · Elsayed often fears they will see semiotics as "too pretentious," this doesn't happen too frequendy. Though the unconventional major doesn't appear on the final diploma Kabay's and Elsayed's will only reflect that they graduated in "special divisional major" having an unusual major can stimulate useful dialogue. "It gives me the opportunity to talk about my interests, research, and work both in and outside the classroom," Kabay says. 
+
+Though the special divisional major may not ensure success in the job market, Elsayed insists that gaining an edge is not her intention. Students pursuing the special divisional major are just like every other Yale student: chasing knowledge for its own sake. Choosing even an invented major may neither predict nor guarantee your future. The men of Animal House may have put it best: 
+"I'd listen to him if I were you. He's pre-med." 
+"I thought you were pre-law." 
+"Same thing." 
+-Dai{)' Atterbury

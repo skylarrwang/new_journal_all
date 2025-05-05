@@ -1,0 +1,11 @@
+Publication date: 12/83
+Volume 16, Issue 3
+
+**Title: Yale's New Right**
+**Author: Morris Panner**
+**Page number(s): 34**
+
+EXTRACT ARTICLE CONTENT:
+The Yale College Republicans (CRs) have made a great deal of noise this year.  Their pronouncements have filled the pages of the Yale Daily News and other campus publications.  They are, however, a very small minority at Yale, and this year's test of their strength in the student government election proved rather disappointing.  Their candidate for the student body presidency received only about one-third of the vote.
+
+The CRs's activities have been covered widely in the media, yet the number of "hard-core" conservatives at Yale remains small. The Free Press, the CRs' publication, has experienced major organizational problems which greatly diminish its campus effectiveness. If the Yale CRs intend to be anything more than a human interest story in the upcoming November elections, they still must confront these serious challenges.  Their toughest battle will be persuading a predominantly moderate and liberal student body to support the hard-line conservatism of Ronald Reagan.  The CRs' leader, Mark Fischer, however, remains optimistic, believing that the recent election was only a "tip of the iceberg."  Next November's election will be a more definitive test of their power.  One student involved in the recent campaign, Arnold Gonzales '84, has doubts about the CRs' ability to significantly affect campus politics, suggesting that their influence is largely a matter of "making a lot of noise."  He also points out that many of the people who worked on the campaign were Democrats or moderates, who may have been motivated more by their dislike of the Democratic candidate than by a belief in the CRs' political platform.  Gonzales maintains that the claim that the student body is becoming more conservative is a "fallacy."  Others involved in the campaign seemed to agree that students would not give up their money for conservative politics, saying, "After all, you can't die for the dollar."

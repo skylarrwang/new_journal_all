@@ -1,0 +1,18 @@
+Publication date: 12/07
+Volume 40, Issue 3
+
+**Freshman Reports: Mini-Biographies or Assessments?**
+**Author: Jacqueline Jove**
+**Page number(s): 7**
+
+EXTRACT ARTICLE CONTENT:
+Ethan Heard, a Calhoun freshman counselor from 2006 to 2007, considers the reports to be "mini-biographies" rather than assessments of a student's undergraduate exploits. 
+George Levesque, Dean of Freshman Affairs, echoes Disla and Heard, adding that the reports encapsulate• a student's academic interests, extracurricular involvement, major challenges, and key successes. During his term as dean of Berkeley College, Levesque found the reports "helpful but not earth shattering" and "almost never contained anything I didn't already kflow." J.E. Dean Kyle Farley agrees that the reports were not especially insightful, even during his first year at the college. The reports describe a freshman's transition period, and, as Farley points out, recurring accounts of stress overload or flirtations with alcohol could be "true of any Yale freshman." 
+Though freshman reports can't measure up to a cultivated relationship with a college dean or master, officials often refer to them while writing letters of recommendation. J.E. Master Gary Haller recounts the daunting task of crafting a recommendation for a student he never knew. Ten years after graduating from Yale, the alum called Haller for an academic recommendation, despite never having met the master during his time at the University. Haller dug into "dead storage" and used the report, along with the student's application essays and transcripts, to piece together a letter. 
+If these reports are as humdrum and harmless as the masters and deans insist, why are they kept under wraps? The Buckley Amendment, or Family Educational Right to Privacy Act, ensures students' rights to access university records pertaining to them. Yet William Sledge, a former Calhoun master, acknowledges that keeping the .files "so strictly under lock and key makes it practically difficult to view them." And the statute is vague in regard to circurnstances under which outsiders such as a master or dean can view these files. 
+Haller points out, however, that advertising the reports creates another set of logistical problems. When Scholz wrote an angry blurb about the reports in last December's issue of ].E.'s humor magazine, Temptations, Haller feared a "mobilization" en masse" of curious students December 2007 at the dean's office door. Haller's greatest concern is that broader awareness about the reports could damage relationships between freshman counselors and their freshmen. 
+
+Despite Scholz's resentment of his counselor's negative comments; college administrators insist that potentially damning information in the reports does not affect recommendations or incite disciplinary · action. The reports, says Haller, provide only a brief snapshot of a student's performance. Haller draws an analogy between the freshman report and an isolated science grade on a student's academic transcript. "If he or she is a humanities person with a particular aversion to science," he says, "this one grade would represent a distorted picture." 
+
+Like that isolated science grade, the freshman counselor report a short, hand-written paragraph, cradled within the protective walls of a student's permanent file is but a minor piece of a student's biographical puzzle. Innocuous, freely accessible, but curiously surreptitious. 
+-Jacqueline Jove

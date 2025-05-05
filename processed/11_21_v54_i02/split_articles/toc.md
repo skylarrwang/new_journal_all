@@ -1,0 +1,22 @@
+Publication date: 11/21
+Volume 54, Issue 2
+
+**TABLE OF CONTENTS:**
+- LABOR AT THE LIBRARY - Avery Mitchell
+- GO AHEAD, YALE. TRY TO TAKE MY HEDGEHOG AWAY. - Jack McCordick
+- SEX IN THE STACKS - Meg Buzbee
+- SOMEBODY HELP! I HAVE COVID AND I'M STANDING ALONE OUTSIDE MAISON MATHIS - Jabez Choi
+- DEAD ON IMPACT - Jesse Goodman
+- NIGHT LIFE - Alex Rocha-Alvarez
+- WHEN A VIRUS CALLS - J. D. Wright
+- FILLING IN THE BLANKS - John Nguyen
+- BARBED-WIRE BALLET - Elena Unger
+- PACEBREAKER - Hailey Andrews
+- AFTER THE SURPRISE PARTY - Will Sutherland
+- MY BEST FRIEND LIKES TO SLEEP IN THE DARK - Michaela Wang
+- CRYING IN THE L-DUB SHOWERS - Miranda Jeyaretnam
+- MEW HAVEN CAT CAFE - Abigail Dixon
+- LEITNER HOUSE RITUAL - Idone Rhodes
+- BOSTON BOUND - Yonatan Greenberg
+- CODING COMBAT -  
+

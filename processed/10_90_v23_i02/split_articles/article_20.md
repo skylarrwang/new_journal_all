@@ -1,0 +1,21 @@
+Publication date: 10/90
+Volume 23, Issue 2
+
+**Title: The New Haven Project**
+**Author: Dennis Pierce**
+**Page number(s): 28-30**
+
+EXTRACT ARTICLE CONTENT:
+The New Haven Project (NYP) uses various approaches to keep struggling businesses from going under. They match prospective buyers with faltering companies, help companies develop new products, and raise money for employee buy-outs. Last May, Textron-Lycoming asked NVP for help. Although the two groups are still talking strategy, Ciuci is optimistic about the plant's prospects. "NYP can help us in a lot of ways," he said. "We should be able to find work from high-tech aerospace industries." Ciuci has some cause for hope. For one thing, Textron-Lycoming makes more than just tank engines. Commercial jet engines account for 4q percent of their business. Even if Textron cannot find a product to replace the M1 engine, the company will most likely remain in business. What's more, by extending the tank contract another two years, the Defense Department gave Textron some breathing room. With the extra time, Textron and NVP may be able to find new jobs for the 1,300 people currently working on the Ml project. 
+
+Unitep Nuclear Corporation has less in its favor. The government's decision to cut UNt out of the deal hit the company from the blind side. In one fell swoop, UNC lost its entire market. "Unfortunately, we can't sell nuclear propulsion units to just anyone," said United Nuclear Corporation Vice-President Bob Bonito.
+
+
+"We can't sell nuclear propulsion units to just anyone," said Bob Bonito, vice president of human resources for UNC. If the company cannot develop an alternative product, it will be forced to close down. But UNC's product is so highly specialized that the company can't just jump into a new market. "Finding new work in such a small amount of time is extremely difficult," Burton said. "We're starting from scratch." Last spring, UNC applied for a grant from the State Department of Economic Development. In September, Connecticut gave UNC $100,000 to find new markets. Burton, while pleased to have the grant, was frustrated by the lengthy process. "In the four months it took them to make up their minds, 300 people lost their jobs," he said. Andrew Brecher, deputy commissioner of SDED, explained that the UNC grant was the first of its kind. "We don't have a system worked out yet," he said. 
+
+Brecher sympathizes with UNC's plight, but he believes the company is partly to blame. "For years, we've tried to warn defense companies about the possibility of this situation," he said. "But they were much less interested in diversification when the industry was strong." NVP's Kevin Bean, like Brecher, blames defense companies for being short-sighted. For years, he has tried to persuade defense manufacturers to seek alternative markets. Bean stresses that diversification is not a new idea. "There's been legislation on the books to promote diversification since 1972," he said. According to Bean, military contractors made no effort to provide for the future. "When it was sunny, nobody planned for rain," he said. Still, diversification is more easily said than done. Besides scraping together the resources to break into new markets, defense companies must learn a whole new way of doing business. The transition from military contracting to private, commercial marketing is difficult. "Major personnel changes often accompany diversification attempts," Brecher said. "This fact weighs heavily in a company's decision to diversify." Not surprisingly, many defense companies balked at the idea of diversification until contract losses and layoffs forced the issue. 
+
+While CIT and NVP do what they can to help the struggling industry, Bean questions whether these efforts are enough. "On paper, CII and the Nawgatuck Valley Project look okay," he said. "In reality they amount to putting a finger in the dike." Whether or not the levee breaks depends on the ingenuity of the industry, the efficiency of supporting groups and some luck. Textron-Lycoming got a break. UNC did not. Defense contractors are faced with the reality that the 1980s arms build-up is over.
+
+
+-Dennis Pierce is n junior in Sillimnn College.

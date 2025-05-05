@@ -1,0 +1,17 @@
+Publication date: 02/84
+Volume 16, Issue 4
+
+**Title: A Case for Quarantine?**
+**Author: W Hampton Sides**
+**Page number(s): 8-9**
+
+EXTRACT ARTICLE CONTENT:
+The case of a New Haven prostitute whose one-year-old infant· is being treated for AIDS in a special ward at Yale-New Haven Hospital continues to perplex health officials and medical authorities alike. Since The New journal broke the story in December ("Lana: A Story of Scarlet Letters and Public Risks"), the legal and ethical dilemma posed by this I. V . drug-abusing AIDS carrier has received national attention. CBS News is now working on a 60 Minutes segment about the special AIDS case which should be aired later this month. 
+
+Meanwhile, a state legislator in Hartford has proposed a piece of legislation- as a response to this case- that would empower health department officials to quarantine certain individuals who present a "deathly" threat to public health in Connecticut. 
+
+Richard Tulisano (D-Rocky Hill), Chairman of the House Judiciary Committee, believes the quarantine statutes now on the books must be altered to address the unique epidemiological problems which , he believes, AIDS has presented in certain instances like this one. "We need a way to protect the public," Tulisano .told TN]. "This woman has a communicable condition and may be infecting lots of people. She may be creating a major health hazard." 
+
+Tulisano's new quarantine proposal is fashioned after the civil commitment statutes of Connecticut which enable authorities to detain certain individuals, usually mentally-disturbed patients, who present a clear and present danger to others and to themselves. He wants to add to the commitment criteria anyone who has a communicable disease and who "presents a clear mortal threat" to the community . "I'm concerned about the woman's rights," said Tulisano, "but I'm more concerned about the community's right to public health. My legislation will address isolated individuals. It's not aimed at homosexuals or any other group. I don't want it to be used as a tool . of oppression." 
+
+While the legislators and civil liberties attorneys in Hartford ponder the legalities of quarantine, the woman continues to work on the streets to support herself and her $200-a-day heroin dependency. And as the health department; the police d~partment and the physicians all argue, there is very little that can be done about the situation without violating her rights. Yale Chaplain, John Vannorsdall may be the only person who has offered a way out of the impasse. With the assistance of Paul Keane, Vannorsdall has proposed to her that money could be raised through Yale channels to keep her off the streets, pay her rent and grocery bill and secure her a full-time counselor. He has also proposed that a special half-way house of sorts could be located to accommodate her and others who may be in a "similar predicament." But the woman appears to be unwilling to accept Vannorsdall's proposal. "We don't, indeed we can't, do anything without her participation," explained Vannorsdall. "The problem is one of not wanting to force something on her. We've tried very much to protect her rights, but we need her cooperation."

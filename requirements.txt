@@ -1,0 +1,21 @@
+# Core LangChain dependencies
+langchain-experimental>=0.0.49
+langchain-community>=0.0.13
+langchain-core>=0.1.17
+langchain-google-genai>=0.0.6
+
+# Embedding models and dependencies
+sentence-transformers>=2.2.2
+torch>=2.1.0
+transformers>=4.36.0
+
+# PDF processing
+PyMuPDF>=1.23.8  # for fitz
+Pillow>=10.0.0   # for PIL
+
+# API Clients
+openai>=1.12.0
+google-generativeai>=0.3.2
+
+# Utility packages
+python-dotenv>=1.0.0

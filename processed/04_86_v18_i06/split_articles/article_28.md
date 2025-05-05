@@ -1,0 +1,16 @@
+Publication date: 04/86
+Volume 18, Issue 6
+
+**Review: Joining the Club**
+**Author: Lenny Picker**
+**Page number(s): 46**
+
+EXTRACT ARTICLE CONTENT:
+Joining the Club: How Jews Became Part of Yale by Steven M. Oren.  Before 1910 Yale's attitude towards Jewish students was at best indifferent.  "In the 1920s," Oren writes, "the Yale Corporation resolved to continue its policy of numerical limitation on Jews."  The quota system remained in effect until the mid-1960s, and its legacy has proven hard to erase.  "In the course of his research," Oren finds that "Yale's anti-Semitism was not simply a matter of institutional policy; it was also a part of the prevailing campus ethos."  Dr. Oren has written a detailed and fascinating account of a time when Jewish students faced restrictions on their access to education.  His study shows that the exclusion of Jewish students from Yale was not merely an administrative process; it was a symptom of prevailing campus attitudes and social realities.  The author notes, "Even once the numerical restrictions were lifted, Jewish students still had to prove themselves worthy of admission and acceptance." They were subjected to rigorous evaluations and standards, exceeding those imposed on their non-Jewish peers.  This rigorous standard persisted even after the quotas were lifted, demonstrating a lingering element of bias that impacted both admission and the broader campus climate.  This book exposes the inherent tension between academic success and social acceptance experienced by Jewish students at Yale, highlighting the systematic barriers and prejudice they confronted.  These barriers often extended even after academic achievements, with Jewish students needing to exceed expectations
+
+
+The author points out that the book highlights the gap between the academic achievements of Jewish students and the social acceptance they received at Yale.  He underscores the diligence Dr. Oren displayed in unveiling this unpleasant aspect of Yale's history.  This book demonstrates how the institution's policies and campus climate contributed to the challenges faced by Jewish students and the systemic barriers to their full integration.  The book successfully illustrates that neutrality towards the prejudices of previous generations is unacceptable and akin to disregarding contemporary manifestations of such biases.  It's clear the author believes that while Yale boasts of leadership, its history demonstrates that not all initiatives it spearheaded were morally sound.  The author emphasizes that Yale in 1986 is far more welcoming to Jewish students and faculty. The recent amendments to the Yale Corporation bylaws that opened the door for a Rabbi to be considered as the University Chaplain and the President's active support for the Judaic Studies program, are cited as examples of improvements.  However, the author also points to remaining sensitivity gaps, such as occasional instances of faculty being unaccommodating to religious Jews needing exam extensions.  The author concludes that the overall atmosphere for Jewish students is improved, but this should not cause complacency and that it's vital to remember Yale’s past.
+
+
+
+<br/>

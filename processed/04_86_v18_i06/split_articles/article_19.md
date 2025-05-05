@@ -1,0 +1,18 @@
+Publication date: 04/86
+Volume 18, Issue 6
+
+**The Direction of New Haven Development**
+**Author: Dan Waterman**
+**Page number(s): 22-23**
+
+EXTRACT ARTICLE CONTENT:
+The direction of New Haven development is apparent, but the destination is unclear.  The Maritime Center now occupied by Southern New England Telephone (SNET), which moved from George Street, is still fifty percent vacant. The demolition of the Powell Building is scheduled for next month and construction of the tower should begin within the year, only because Connecticut Bank and Trust (CBT) finally agreed to move in. Ginsberg is banking on New Haven's sound economy and a strong labor market to attract newcomers to the region, but he has tough competition throughout Connecticut. He will have to compete with such meccas of corporate industry as Hartford, Stamford, and the "Gold Coast" region of the state where there also exists a tremendous glut of office space. "We have tough competition in a tough market and it will take a lot of work to fill those buildings. But also understand that job creation goes beyond downtown office spaces and moving in companies is only preliminary. We must take it further."
+
+
+Ginsberg speaks of "taking it further," but what that entails is not quite clear. Other than retail office space, New Haven's developments consist of a potpourri of other projects. These include the continuing renovation of the theater district, hotels and various downtown residential projects, such as Whitney Grove Square, a project of 300 or so townhouse units costing $300,000 each. The project has had a tremendous response of interested occupants, bolstering the city's hopes of bringing residents back from the suburbs and into the city. Another such project is the Harbor Landing at City Point, a development of high rent condominiums with a private marina and boat slips for residents. This project in particular has come under fire by local residents and officials for fears that it might diminish or destroy the old neighborhood which already exists there. But Ginsberg maintains that no such conflict should arise. "The concern is not with the Harbor Landing per se because it is not really a part of the City Point neighborhood. Development of the marina will bring in a lot of people. We want to develop it while maintaining the integrity of the neighborhood. It's a tough balancing act between the two."
+
+
+Development in New Haven at this time is contingent upon economic feasibility alone. Money from the private sector and the buffeting of the industrial economy dictates what gets built, where it gets built, and who it will ultimately serve. Quality, aesthetic value, and diversity of interests in such a system often take a backseat or are entirely ignored. And some people fear that such a program of development is far too narrow, limited, and short-sighted, as damaging to New Haven's culture as it is a boon to the economy. Today, while the economy is as healthy as can be expected, far better than five years ago, a great deal remains to be seen. City Hall is optimistic about the changes taking place in New Haven, but its approach still has many problems. Its alterations could dramatically affect the face of the city. What we are left with in the end will be a city as full and mature as it once was, or a facade of progress as empty as the old City Hall.
+
+
+Dan Waterman, a sophomcre in Ezra Stiles, is associate editor of TNJ.

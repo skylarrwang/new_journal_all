@@ -1,0 +1,20 @@
+Publication date: 02/93
+Volume 25, Issue 4
+
+**Title: Against the Tide**
+**Author: joshua Auerbach**
+**Page number(s): 26-27**
+
+EXTRACT ARTICLE CONTENT:
+At a Black Student Alliance at Yale (BSAY) debate held during the Clarence Thomas confirmation hearings, one law student excoriated the judge as a "traitor to his race" for his unabashedly conservative stance on issues of civil rights and affirmative action and for his marriage to a white woman. Thomas, who has generally lived up to his advance billing as a true movement conservative, has left many in the black community with the bitter taste of betrayal in their mouths. His high visibility has focused attention on the precarious position of black intellectuals who dissent from the social and political views of the black community's established leadership. 
+
+For the minority of black students at Yale who agree in part with Thomas' approach, and even for those who simply supported his nomination so that the black community would have a voice on the Supreme Court, the confirmation hearings caused a certain amount of personal discomfort. "The Thomas hearings clarified rifts that already existed in the black community," said Richard Forde (PC '93). 
+
+These rifts, however, do not run along a simplistic ideological divide between "conservatives" and "liberals." Rather, they represent a series of extremely blurry lines that vaguely differentiate positions on several issues. While the number of black Yalies who identify themselves as "conservative" is extraordinarily small (none of the students interviewed for this article, for example, consider themselves conservative), many who see themselves as moderate or even liberal-leaning nonetheless find themselves on the "wrong" side of one of these blurry lines. These students claim that the attitude of Yale's black community toward those whose views diverge from the majority can often be inhospitable and occasionally exclusionary. The pressure to conform, according to some, effectively stifles a great deal of debate. "The dissenting black intellectual can expect ostracism; and the predictable effect of the ostracism is to discourage freedom of thought," Law professor Stephen Carter wrote in his book Reflections of an Affirmative Action Baby. 
+
+Career argues that in recent years affirmative action has become a sort of litmus test to determine one's loyalty to the race. "The single proposition on which dissent seems to be intolerable is the proposition of affirmative action," Career said. Many black students involved in the black community's organized activities do not always feel welcome when they do attend community events. "There is a very suspicious attitude toward those who don't take part in community activities," Kurzweil said. A whole vocabulary of epithets-Uncle Tom, incognnegro, oreo--exists to refer to blacks who either dissent politically or who socialize primarily outside the black community. "I have friends who have been hurt by that and as a result don't associate with the black community," Forde said. Forde himself remembers a time when a black friend told him that a third student in the black community, someone that Forde did not know, expressed surprise that he and Forde were close. "I'm surprised Richard speaks to you," the third student said. "The word is that he doesn't associate with the black community." A phrase like "doesn't associate with the black community," Forde said, is often a euphemism for "Uncle Tom." 
+
+BSAY co-moderator David Bradley (YC '94) acknowledged that ostracism like this occurs at Yale, but claimed that black students have become increasingly aware of the damage that these epithets can cause. "The black community is becoming sensitive to this," he said. "We are trying to become more inclusive." Orlando Bishop (PC '94), writing in Say It Loud, the BSAY newsletter, proposed a move to a more tolerant black community. "What is solidified
+
+
+---

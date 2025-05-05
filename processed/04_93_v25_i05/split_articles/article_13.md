@@ -1,0 +1,10 @@
+Publication date: 04/93
+Volume 25, Issue 5
+
+**Title:  Untitled (Page 7 Article)**
+**Author: David Gerber**
+**Page number(s): 7**
+
+gestures a trial lawyer would be proud of. Platt's attorney teeters back and forth uncertainly, and when he finally finds the words he's been groping for, they emerge in a defeated mumble. After a two-minute recess, the judges critique the teams' performances, but do not announce the winner. O ne of them drags on about subtlety and word variety; another suggests more respect for the bench. From out in the hallway comes a cheer. "The scores are out," says a concerned Hillhouse parent, then walks out to check for herself. Still the judges ramble on. Now they're saying something about keeping questions short. The parent comes back in the courtroom, amused dejection in her eyes. "We won tonight all right," she whispers to some eager parents and teachers. "But we lost last week." Disbelief becomes audible. "We lost last week- to Hamden? But we did so well, better than they did." By this time the Hillhouse students, still bound before the longwinded judges, sense that their season has come to an early end. For the defending state champions, first-round defeat equals disgrace. Another parent comes back to her seat. "Mr. G. is upset." 
+
+Two weeks later, the loss still pains the coach. "It's my fault," says Coach Grenet. "I should have pushed them more. I assumed they would get it together, and they never did." He has already turned to next season, which will require significant regrouping. Four of this year's competitors graduate in June, and one of the remaining three has expressed doubt about returning to the team. As Coach Grenet rises from his desk, he glances at the three state championship plaques on his office wall. It may be some time before he adds a fourth. IIIJ David Gerber, a sophomore in Trumbull College, is associate editor of TNJ. APRIL 16, 1993

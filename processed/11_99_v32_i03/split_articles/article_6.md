@@ -1,0 +1,22 @@
+Publication date: 11/99
+Volume 32, Issue 3
+
+**Title: Fed Up**
+**Author:  [Author not specified]**
+**Page number(s): 6**
+
+"Fat acceptance." "Size rights." "Size diversity empowerment." "Size esteem." Over the past thirty years, fat activists have coined these and similar terms in a grassroots effort to fight size-based social and economic discrimination. The last of those terms, "size esteem," was coined by Richard Stimson, a size-rights and mental health activist and co-director of New Haven-based Largesse, the Network for Size Esteem. "Size esteem is a very important component of your health," says Stimson, Richard's wife and the founder of Largesse. "We're interested in people's health-mental, social, physical-independently of weight loss. Everyone deserves to feel good about their body, as well as about themselves generally." Karen Stimson became active in the size-rights movement shortly after its inception in 1969. Despite her efforts to open discussion about the issue and to bring important size-rights events to New Haven, city residents have been relatively unresponsive. "It's a fairly conservative area," says Karen. 
+
+The size-rights movement began in 1969 with the founding of NAAPA, the National Association to Aid Fat Americans, now known as the National Association to Advance Fat Acceptance. NAAFA originally promoted civil rights for fat people and helped to focus the movement, but made few substantial gains for fat acceptance. 
+
+During the 1970s, a group of radical fat feminists broke away from the movement, publishing position papers, writing a Fat Liberation Manifesto, and generally shaping fat politics. Medical research of the late 1970s and early 1980s supported the fat underground's claims that diets do not work and that being fat is not a health hazard. This research, especially the work done by Susan Wooley, an eating disorders specialist at the University of Cincinnati, also gave the size-rights movement inroads into the academic community. 
+
+At the same time, growing grassroots efforts to organize and discuss fat-rights issues in Boston, Atlanta and Minneapolis brought the message to a wider audience. The first Fat Feminist Active Working Meeting was held in New Haven in 1980 with 17 participants from around the country, including Karen Stimson. Five of those women were invited to form a keynote panel at a women's health fair going on at the same time. This marked the first time the feminist community acknowledged size-rights issues. 
+
+Around the time of the fat feminist convention, Karen was also involved in alternative radio and fat women's consciousness-raising in New Haven. In 1982, she founded a fat support group which grew into a broader national network with the help of groups in several other states. In the late 1980s Largesse started publishing size-esteem bulletins and a newsletter entitled "Nothing to Lose," in addition to selling legal information and size-empowerment kits. Largesse no longer distributes print material, but the Stimsons are currently trying to make their substantial archive of fat-rights information available at the new Largesse website. "We've evolved from a group to a publishing company to a resource network, and that's what we are now. By having stuff on the web, it's accessible to everybody," says Karen. 
+
+The site currently provides a variety of resources-legal information, self-help literature, archives of the fat liberation movement, information about International No Diet Day, and links to other groups and fat-acceptance websites. The opening page displays two of Richard's contributions to the size rights movement: the definition of size esteem as "feeling acceptance of, respect for, and pride in one's body, whatever its size or shape," and his "Invocation for the Size Rights Movement," a poem about the struggle against size oppression. "Let the voices for size rights be heard," it begins, "From the highest mountain to the deepest valley /In cities, towns, and villages /wherever humankind may dwell." Karen's writings are also featured prominently on the site. 
+
+Her "Fat Feminist Herstory, 1969-1993" details the history of the size-rights movement and her participation in it. The Stimsons together composed a series of ten affirmations for size esteem, such as "I am strong, healthy and beautiful just the way I am right now." 
+
+Despite her lengthy career as a size-rights activist, Karen does not see her role as a movement leader. "My style has always been to lead from the rear, which is to

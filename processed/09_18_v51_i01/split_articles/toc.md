@@ -1,0 +1,14 @@
+Publication date: 09/18
+Volume 51, Issue 1
+
+**TABLE OF CONTENTS:**
+- THE LESSONS OF ROBERTO LUGO — Addee Kim and Sarah Pillard
+- HARD DRIVES, HARDER QUESTIONS —  Amber Hu
+- WHO’S LAUGHING NOW? — Max Himpe
+- PORCELAIN — Kyung Mi Lee
+- THE PRICE OF FREEDOM — Isaac Scobey-Thal
+- BRIDGEPORT’S BIG GAMBLE — Steven Lance
+- ON THE DOORSTEP — Eliza Fawcett
+- CLOSE PROXIMITY TO A GOD OF THE INDUSTRIAL WORKFORCE  — Sohum Pal
+- PSYCH AND THE DORM LIFE — Noah Macey
+

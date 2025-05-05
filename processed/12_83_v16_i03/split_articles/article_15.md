@@ -1,0 +1,33 @@
+Publication date: 12/83
+Volume 16, Issue 3
+
+**Title: The Rise of the Right**
+**Author: Morris Panner**
+**Page number(s): 29-30**
+
+EXTRACT ARTICLE CONTENT:
+They came to Yale with their $15 checks and their briefcases to learn the subtle art of campaign success. They came with their convictions about supply-side economics and peace through strength. But most important, the 20 college students from Connecticut College, Trinity and Wesleyan came to Yale with their steadfast belief in the Republican Party. 
+
+The College Republicans call it the "Field man's School." It is where they build their cadres and plan for what they hope will be another GOP victory next year. From November 12 to 14, one week before the Yale-Harvard game, they brought their "school" to Yale for the first time. 
+
+Since 1981 these campaign workshops have served as the linchpin in the College Republicans' nationwide recruiting drive, which has been a success by anyone's standards. The CRs claim to have enlisted 127,000 members at 1,100 campuses, and at Yale they've signed up almost 150 members, up from six only a year and a half ago. 
+
+Presiding over the school at Yale was Paul Erickson '84, a smooth and articulate salesman for his cause and one of the foremost campus Republican organizers in the country. He lectured from a 380-page instruction manual prepared by the College Republican National Committee (CRNC) and he offered everything from advice on how to start your own conservative college newspaper to an evaluation of supposedly leftist groups on the country's campuses. After the weekend sessions were over and everyone had gone home, the Republican National Committee back in Washington soon had the names of 20 new campus leaders to plug into its computerized "talent bank." 
+
+Less than a year from now they'll be out of the classroom campaigning on campuses, but now the College Republicans are sitting and learning-planning a strategy. "The key is to train people for the '84 elections," said Mike Fischer '85, Chairman of the Yale College Republicans. "The Fieldman's Schools are an important part of this. We bring people from all over Connecticut to Yale and teach them how to campaign. Each individual convert is hard to achieve, but we're growing. By next fall we'll be able to field an army of 200 people anywhere in the state within 24 hours." 
+
+The Yale College Republicans are only the most conspicuous component of a larger trend toward right-wing activism at Yale. It used to be that conservatism and activism were mutually exclusive on campus. But now one can find conservative students opposing the standard liberal line at rallies and demonstrations. One can read their numerous letters in campus publications. They even have their own newspaper at Yale, though it's not published very often. National commentators are saying that the clock is turning back, while more and more Yale alumni are welcoming what they, too, perceive as the resurgence of the Right. 
+
+But for all the talk, the so-called Yale Right has not done all that much. The Yale CRs were unsuccessful in securing a victory for Slade Mead, their candidate in the local aldermanic race last month. The Yale Free Press, the conservative tabloid which began in October of 1982 with pretensions of being a weekly publication, has managed to put out only two short issues in the first three months of this year even with outside contributions amounting to over $5,000. Still, the very existence of a Yale Right has drawn considerable media attention here and around the country. The Yale Literary Magazine controversy was featured on 60 Minutes last summer, the Free Press's five-day trip to Afghanistan was covered by The National Review and the Mead-Stearns race was billed as a classic left-right confrontation in The New York Times in November. All the publicity over so little substance has led some people to wonder if the Yale Right is anything more than a media creation. 
+
+But for the leaders of the Yale CRs, the resurgence of the Right on this campus is no illusion, but a dream come true. Erickson first came to Yale in the spring of '82 as a transfer student from the University of South Dakota. "There was a rumor about the College Republicans," he recalled. "But there was nothing there for real. The few who were here sat around in coats and ties. They were the stereotypical elitist politicos. You can't create activism when there aren't any activists. But now we have learned that we have to roll up our sleeves and get down and get dirty. Now, the CRs have risen up and become the SDS of the '80s on the right." 
+
+Unlike the SDS of the '60s, though, the college Right of the '80s relies more on computers than protest songs and embraces the political establishment like a long-lost brother. In 1981, under Erickson's leadership, the CRs hired 25 college students full-time and split them up into five regional teams. "We gave each group a 16-person van and a constant supply of literature and said, 'Go forth and multiply,'" explained Erickson, who engineered the whole event from the CR headquarters in Washington where he served as full-time field director. Three months and $187,000 later, the CR recruiters had been to 43 states and had returned with 17,000 "converts." 
+
+The whole project revolved around a series of Fieldman's Schools-like the one at Yale-which the recruitment teams held at each university they visited. The schools offered basic campaign and membership recruitment techniques and certified students as Republican political organizers. "These techniques are used by both sides and whichever side uses them more effectively will win," explained Erickson. 
+
+During the three months of the recruiting drive, the schools graduated 1100 students. "If we need talented volunteers for a race anywhere around the country," said Erickson, "we can tell the candidate exactly who to contact." 
+
+The Yale CRs have shown their renewed enthusiasm in their weekly Thursday night meetings in Linsley-Chit with a regular crowd of between 15 and 25. "We used to be moribund," explained Mike Fischer. "The group was run by liberal Weicker-type Republicans back then. Now, we offer an organization for people who take their politics seriously and for people who take Ronald Reagan seriously." 
+
+The CRs' hard-core right-wing stand paid off in last fall's membership drive. Using slick pamphlets and posters provided by the CRs' national offices, Fischer and Erickson recruited 75

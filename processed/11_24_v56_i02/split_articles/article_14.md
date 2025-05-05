@@ -1,0 +1,9 @@
+Publication date: 11/24
+Volume 56, Issue 2
+
+**Title: Light Rain Within the Hour**
+**Author: Cal Barton**
+**Page number(s): 13**
+
+EXTRACT ARTICLE CONTENT:
+Well, the flood was was coming. Politicians took up the word “Armageddon.” Television preachers did things with their arms. Lifeguard apparel was in fashion, and hipsters wore T-shirts that said “Current Mood: Hieronymous Bosch.” Everyone named Noah had to smile through variations of the same joke. Fortune tellers brought bag-chairs to the gas stations. Farmers forgot the names of their horses. Antique dealers lined up all their rocking chairs and pushed them, one by one. The baker’s wife went to the men under the bridge; they laughed and tossed chunks of bread to the ducks. The duration of the average hug tripled. Those who once fled from the word “lover” wondered why they had been so uneasy. At the seafood restaurant, one man wiped his chin, stood, walked to the lobster tank, and turned it over, screaming: “Be free! Be free!” The lobsters clicked their claws, unimpressed. Teenagers brought boomboxes to the cemetery. They were dancing when the first raindrops fell: they held out their palms, tilted their heads to the sky, and cheered. The rocking chairs stopped rocking. The men under the bridge tossed their shoes into the water. Nursing home residents sat by the window and listened to the rain-music. The oldest began a list of everyone he could remember meeting. He wept. There were puddles now. One boy in the cemetery yelled—“Guys, make room for the ghosts!”—and they made room. And they applauded invisible breakdancers. And they were terrified.∎

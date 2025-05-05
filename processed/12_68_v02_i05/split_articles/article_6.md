@@ -1,0 +1,209 @@
+Publication date: 12/68
+Volume 2, Issue 5
+
+**Giggling In The Teeth of Death**
+**Author: Paul Moore**
+**Page number(s): 8**
+
+8 1 The New Journal ! December 8, 1968 
+Giggling In The Teeth 
+of Death 
+by Paul Moore 
+Marjorie Kellogg, Tell Me That You 
+Love Me, Junie M oon. New York; Farrar, 
+Straus and Giroux, 1968. 216 pp. 
+The house was hollow. The banyan tree 
+shed its leaves carelessly, and shingles fell 
+freely from the roof. High above the front 
+yard a scruffy old white owl kept watch. 
+Sidney Wyner, the slob next door, was 
+clipping his hedge when the freaks drove 
+up. Staring out the mucky windows of the 
+broken-down taxicab were the three for-
+mer patients, their eyes gleaming happily. 
+Arthur was the first to jump out of the 
+car, incredibly excited; jerking first left, 
+then right, like a busted butterfly. Arthur-
+the contorted jumble of arms and legs, 
+always screwing up his face into a thou-
+·sand popping expressions. Bawling end-
+lessly, he was the most gutless of the three, 
+confining his thoughts to a fantasy world 
+of sexual conquest. Arthur, skinny-legged 
+Arthur, pulling his twisted hair out of his 
+head, thinking his world was falling 
+around him, that he was· drowning in a 
+sea of dread. 
+
+Next Warren, fat and lazy Warren. 
+Mouth always spouting orders, beard 
+dotted with dribbling spit, Warren talked 
+to keep himself busy, to rebuild his sanity. 
+Warren the hunter, spending countless 
+days grubbing for straight and flashy 
+friends to show off to his fellow monsters. 
+The master flatterer, a con man with 
+paralyzed legs, a homosexual. 
+
+Junie Moon was the last of the three 
+and the ugliest in a close race. No acro-
+batics for her. Junie Moon stepped 
+gingerly out of the taxicab, holding her 
+head high. Junie Moon, the sweet and 
+stupid name for the charmer with the 
+messed-up face and stringy dirt-brown 
+hair. Frail as a ragdoll, her face no regular 
+kind of ugly-a red gash for a nose, two 
+crooked slits for eyes, broad bloody steaks 
+drawn across her face. The rest of her just 
+as sad, her hands naked red stumps, 
+tender and torn. No fingers. Her mouth 
+a thin line across a face ripped with tears 
+of tissue, eyes like tiny bullets of terror. 
+Junie Moon is stately. 
+
+The new home for Arthur, Warren and 
+Junie Moon, next door to Sydney's, was 
+all falling down. The steps were crum-
+bling. The windows had been broken 
+months ago. The yard was a mess of 
+sticks and rocks left by the kids before 
+the house was boarded up. But none of 
+the three noticed . . . Arthur threw 
+Warren into his chair and they wheeled 
+up the cement steps. What a paradise. A 
+beautiful big tree in the middle of the 
+yard- Warren noticed that. So what if 
+the gate was rusty and the front door 
+stubborn? Junie Moon was chattering 
+madly and cracking dirty jokes. Arthur's 
+arms and legs and hands and everything 
+flying in different directions. Warren as 
+Caesar in a wheelchair, ignoring Junie 
+Moon's caustic tongue and yelling orders 
+to everyone, telling them what's for din-
+. ner and what their jobs are. 
+
+Arthur, Warren and Junie Moon moved 
+in to live in an "odd juxtaposition of love 
+and horror." Love in ragged and torn 
+faces, gimpy bodies and naked minds. But 
+where is the love in horror? How can a 
+beggar giggle, how can a cripple laugh 
+a real laugh? 
+
+Neither Arthur nor Warren nor Junie 
+Moon could go outside without being 
+thrown onstage. Walking down the street 
+Paul Moore, a senior in Yale College, is 
+editorial coordinator of the Yale Daily 
+News. 
+became an endless trial of loneliness and 
+pain. Children laughed and pointed, and 
+parents tried to curb their emotions. Un-
+wanted, untouched, their friends were 
+either professionals paid to be sympathetic 
+or other lonely people. 
+
+Living together in the old and shaky 
+house was their idea. To leave the hard 
+starch and callous hospital was a gamble, 
+to test the monster outside. Away from 
+the home of the past, the house of heart-
+ache, weakness and fear, where "phantom 
+pains" sap one's sanity and cloud one's 
+dreams. They left the hospital more on 
+mutual daring than heavenly expectation. 
+But when they reached their house on 
+the edge of town, it was finer in its torn 
+condition than the hospital with all its 
+plastic. 
+
+· 
+Although there were major battles over 
+who did the dishes and who slept on the 
+porch, Arthur, Warren and.Junie Moon 
+knew they were needed. In the hospital, 
+everyone had learned to look at each other 
+without wincing. The rub in their rela-
+tionships was a confusion of truth and 
+fantasy. Warren could hardly stop talk-
+ing about his rich and important "friends," 
+and Arthur was captivated by his sexual 
+fancies. But alone in the house, they 
+needed honesty. Their idiosyncracies be-
+came lovable instead of annoying. 
+
+Soon, Arthur and Junie Moon were 
+lovers, of a sort. Since they were on such 
+a constant fever pitch, a lot of romance 
+was generated by a word here and a word 
+there. When Junie Moon first shook off 
+her customary sarcasm, Arthur thought, 
+"If I touch her, we will be blown to 
+kingdom come." And when Arthur 
+slicked back his hair, put on his clean 
+flowered shirt and danced out the door 
+to find a job, Junie Moon could hardly 
+stand it: 
+
+She heard his sobs and the water running in 
+the bathroom and watched him go out the 
+door again and down the path, his hair 
+cotnbed and his shirt tucked in. She thought: 
+his goddamned heroics are going to make 
+me bawl. 
+
+Their shells were so broken by tragedy 
+that their insides showed no matter what. 
+When Warren picked up a glamorous 
+rich "girlfriend," the house became a 
+palace. When Arthur was refused a job, 
+the skies grew dark. The littlest cut was 
+too much. 
+
+But company can work changes. Junie 
+Moon, always a toughie, was destined to 
+be crusty and senile. She was the kind 
+who would love but not talk about it, an 
+obstinate bitch whose charm could in-
+timidate the Devil, whose wit could 
+conquer Rome. So Junie Moon became 
+the leader, with the other two plodding 
+after her like half-witted basset hounds. 
+Both Arthur and Warren spent hours try-
+ing to get Junie Moon to say yes. Arthur, 
+because he was falling all over himself 
+loving her. And Warren was destroyed if 
+Junie Moon ignored his magic schemes. 
+
+As the days passed and it became too 
+cold for brownies and lemonade outside, 
+even cool and pale Junie Moon started 
+changing. The warmth of community 
+overcame her cold, hard self. She became 
+less and less like "an old shoe, an old 
+aunt, or an old sister" and more and more 
+like a living, loving woman. 
+
+The interdependence was there and the 
+love followed, slowly and surely. And 
+you admit that once Julie Moon tells you 
+that she loves you, the ball flies over the 
+fence. And you're home free. 
+I! 
+
+
+TheY ale University Student Calendar Agency 
+announces the publication of its 1969 calendar. 
+Using original color photographs, this year's 
+calendar is a work of art. 
+It will be sold on campus by the Christmas gift 
+book salesmen December 2 through December 9. 
+Also available at the Associated Student Agency 
+office in Hendrie Hall (165 Elm St.) 
+price: $5, students: 4.50* 
+Buy one for yourself and mail a couple to your 
+friends for Christmas. 
+Charge it to your Bursar's bill 
+*Price includes mailing costs for gift calendars.

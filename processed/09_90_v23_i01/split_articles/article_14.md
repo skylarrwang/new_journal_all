@@ -1,0 +1,37 @@
+Publication date: 09/90
+Volume 23, Issue 1
+
+**Title: The Needle and the Damage Done**
+**Author: Ellen Katz**
+**Page number(s): 22-24**
+
+EXTRACT ARTICLE CONTENT:
+"Love as if your life depended on it. Insist on condoms," reads a brochure on AIDS prevention. For intravenous drug users, though, "safe" is not as easy as walking into a pharmacy and buying a condom. Safe means shooting up with a clean needle. Today in Connecticut, it's impossible to get sterile needles legally without a prescription. As a result, IV drug users share needles and spread AIDS. Not surprisingly, the disease has killed scores of addicts. 
+
+This month, the New Haven Department of Health will make life a little safer for New Haven's IV drug users. Outreach workers plan to canvass city streets, giving addicts clean needles in exchange for used ones. For the past few years, AIDS activists have passed out needles illicitly in New Haven, Boston and other cities that prohibit needle possession without a prescription. New Haven's first official needle exchange, authorized by the state legislature last spring, will allow addicts to get needles legally for the first time. 
+
+"Needle exchange is an act of desperation," said State Assemblyman William Dyson. Health officials estimate that half of New Haven's 5,000 IV drug users are HIV positive. Seventy percent of all AIDS victims in the city contracted the disease from IV drug use. The New Haven needle exchange could have saved many of their lives. 
+
+Until now, addicts rarely came across clean needles. While physicians and pharmacists can purchase needles for less than 25 cents a piece, addicts pay five dollars for black market needles. Since the onset of the AIDS epidemic in 1981, the street price of clean needles and syringes has more than doubled. To save money and decrease the risk of arrest, addicts share or rent needles from other users. A single needle gets reused dozens of times. Since the mid-eighties, drug dealers have repackaged used injection equipment and sold these counterfeit "sterile" works to addicts worried about AIDS. 
+
+Tocounteractthedangersposedbyreusingneedles, Sonia Lugo, an outreach worker from the AIDS Division of the New Haven Department of Health, gives out bleach kits to drug users on city streets. For the past three years, Lugo and three other health workers have taught drug users how to clean their needles with bleach. Just north of the Yale campus along Dixwell Avenue, Lugo hands out fifty bleach kits and dozens of condoms everyday. A former addict herself, Lugo says drugs users want to protect themselves from AIDS. "We've seen a lot of addicts changing their behavior, " she said. "Addicts are cleaning their works." 
+
+Lugo concedes that bleach is not enough. "It's not the same as givingthemcleanneedles,"shesaid. "The needle exchange will be more effective." The program will provide clean needles that can be used immediately and will get dirty needles off the street and out of circulation. With each exchange, Lugo hopes to establish a continuing one-on-one relationship with the user. She believes this interaction will be the most valuable part of the needle program. 
+
+"With the needle exchange we'll be able to reach more people," said Lugo. "Now, when I pass a shooting gallery, I leave fifteen bleach kits with the person outside." Even if the bleach reaches the addicts in the building, the information about safe sex and treatment stays outside. "We'll give the needles to the individuals themselves," she said. 
+
+New Haven Mayor John Daniels endorses the needle exchange. Last spring, he lobbied for the program before the state legislature. Daniels argued that current prevention programs were not stopping the spread of AIDS. He hopes clean needles will do the job. "We're reaching out to people who have a disease-drug addiction-that opens them to another disease that will kill them," said Alma Ayala, a spokesperson from the mayor's office. "We are trying to save lives. Needles are essential." 
+
+Needle programs abroad have protected drug users from AIDS. In 1985, the Netherlands launched a needle exchange to protect addicts from hepatitis B, another disease that spreads by needle sharing. In Amsterdam, where health officials annually distribute 700,000 needles to addicts, the incidence of hepatitis B has dropped 75 percent while the number of AIDS-infected drug users has stabilized over the past two years. Similar programs in Canada, Great Britain, France, Switzerland and Australia have blunted AIDS transmission among the IV drug-using population. 
+
+Today in the United States, municipal health departments trade needles in Tacoma, Seattle and Boulder. Private agencies make exchanges in Portland, Oregon and San Francisco. But political opposition to needle programs blocked exchanges in Los Angeles, Chicago and Boston. At the federal level, President George Bush (DC '48) opposes free needle distribution. Last year, Congress refused to fund needles or bleach kits for addicts. 
+
+Eight months ago, New York City Mayor David Dinkins scrapped the nation's first government-sponsored needle exchange. In a city where health officials estimate that half of the 200,000 IV drug users now carry the AIDS virus, only 300 addicts participated in the program. Dinkins told The New York Times on February 14, "I don't want to give people the paraphernalia to continue using drugs." City Councilman Hilton B. Clark called the needle exchange genocidal, explaining that it promoted drug use among African-American and Latino people, who make up the majority of IV drug users in New York. 
+
+Connecticut Assemblyman Dyson thinks that needle programs prevent the destruction of communities. "If I'm doing nothing about the spread of AIDS and I know how it spreads, then that's genocide," he said. While Dyson admits that passing out needles may appear to condone drug use, he argues that saving lives is a more pressing concern. "Since current prevention programs aren't working, common sense tells us we ought to look at something else," he said. 
+
+Some of Dyson's colleagues think that needle exchanges will only make matters worse. State Assemblyman Eugene Migliaro thinks a government-sponsored needle program will not only support current habits but will encourage new drug users. "The needle exchange is giving drug pushers a sales pitch," he said. "Kids are now wary of IV drug use because they're afraid of AIDS. The needleprogrameliminatesthatfear." 
+
+Lugo argues that needle distribution won't create new IV drug users. She says that people don't start using drugs just because someone gives them a needle. "Drug users start by sniffing or smoking," she said. "They don't start shooting up right away." She claims that addicts progress from joints to needles in search of a greater high. 
+
+Last spring, Lugo told the state legislature that needle distribution would save lives. Dyson steered the needle exchange bill through the House Committee on Appropriations, which he co-chairs. "The fact that I felt strongly about the program helped it pass," he said. Two-thirds of the General Assembly voted for a city-sponsored needle exchange. Legislators outlined a demonstration program for a city with a high incidence of AIDS and an operating

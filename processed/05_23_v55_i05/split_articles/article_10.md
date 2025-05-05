@@ -1,0 +1,21 @@
+Publication date: 05/23
+Volume 55, Issue 5
+
+**Title: Unlearning Surveillance**
+**Author: Elisa Cruz**
+**Page number(s): 6**
+
+EXTRACT ARTICLE CONTENT:
+Less than a mile from Yale’s central campus stands my alma mater Hill Regional Career High School. 
+There, it was normal to have a security guard blow a whistle in my face and bark at me and  my friends to go to class because our lunch conversation lingered for a minute after the bell rang. School resource officers (SROs) patrolled the hallways, lunchrooms, and even bathrooms. Amidst this surveillance, I was confronted every day by the school’s lack of resources. Teachers often bought class materials out of pocket. The building lacked proper air conditioning. Hardly any school psychologists existed to match the needs of students. It was hard to accept that within this tight budget, money was used to fund more policing rather than more material support. 
+
+Starting in 1994, New Haven Public Schools (NHPS) established the SRO program—the integration of a police officer into school—to increase both security and support within school districts. SROs differ from security guards in that they are armed police officers. While security guards are not sworn police officers, they still participate in the surveillance of schools. 
+There’s a lack of available public data on SROs, including an explanation for what prompted NHPS to implement SROs in the first place. Now, the SRO program spans seventy school districts across Connecticut.
+
+From my first day as an NHPS student, I was readily aware of our SROs and security guards. Our SRO was usually stationed downstairs, monitoring students as we walked through the metal detector. We also saw SROs outside in our hallways and bathrooms. I wondered if everyday tasks like finding a bathroom or walking to class needed to be policed. Whether we liked it or not, NHPS students were constantly confronted with surveillance. Yet it wasn’t until I was a junior that I was introduced to our psychologist and social workers. In some sense, it was clear who the New Haven Board of Education (NHBOE) wanted us to know. 
+
+While SROs never approached me in a standoffish manner, I likely benefited from being labeled as “good”—I was heavily involved with extracurriculars and close with staff, meaning I was not labeled an “at-risk” kid. I am a Southeast Asian woman, a demographic that doesn’t bear the main brunt of racialized police brutality. However, I still stood in solidarity with students who felt uncomfortable around SROs and what the SROs represented: a system that allows officers to be brutal. This mainly stems from the sheer power they have over us—students, but most importantly, kids. 
+
+Last year, I witnessed our SRO—a fully armed police officer—slam a teenage girl against a brick wall, handcuff her, and lead her into a police car after a school fight. My school’s SRO was twice the age and size of the girl. I cringed watching him seamlessly slam her against the wall. More concerning, we never received an explanation for the severity of the SRO’s actions. I found this lack of transparency strange. How were we to rely on SROs for safety when their actions seemed so arbitrary? Aside from the violence, the sight of an SRO’s navy blue uniform and police badge will always create discomfort for students who have witnessed police brutality—either in their own lives or through the media. SROs will always be a symbol of fear even if they are not always putting their hands on teenagers. 
+
+In my school and beyond it, students began organizing against SROs. Citywide Youth Coalition is a group of NHPS students demanding disinvestment in SROs and reinvestment in mental health support. Citywide hosted a district-wide walkout last May, where I joined a crowd of seven hundred students from thirteen high schools across New Haven. Chants of “Care not cops!” rang through the streets, and the protest pressured the NHBOE to actualize their plan promised back in April 2021: to implement more

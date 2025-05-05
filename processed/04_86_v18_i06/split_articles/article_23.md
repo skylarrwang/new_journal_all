@@ -1,0 +1,17 @@
+Publication date: 04/86
+Volume 18, Issue 6
+
+**The Rise of Fraternities at Yale**
+**Author: Tamar Lehrich**
+**Page number(s): 34-35**
+
+EXTRACT ARTICLE CONTENT:
+Pete Smvl, MC know any of the Zeta P si members before he rushed, be's now.president to live in the house next year. reality. Others only hope that apart from othef ' fraternities. The fraternitie~ won't become so popular that freshmen will feel pressured to join. · Adam Reeder, PC '87, didn't even consider frats when applying to college. Yet, he joined Kappa Sigma last year and considers the growth of fraternities at Yale to be a positive development-the wave of the future. "For me, Kappa Sigma provides encouragement in all the things I do," he said. "It doesn't displace things but enhances them. I always wanted to do community service, and I needed a push." Reeder feels frustrated with the attitudes most Yale students have in regard to fraternities. "Kappa Sigma is a whole lot more than a good party. It's a group of people who feel a close relationship and wanted to do something for the community and the university as well as for ourselves. I've met so many brothers that I never would have met." 
+
+On April 12, 1985, the Yale chapter of Kappa Sigma became a colony, signifying a trial period when a group of students indicate to the national chapter that they'd like to become a fraternity. In order to get their charter, the members of Kappa Sigma had to complete five community service projects, one of the aspects that sets it very admini'strative- bureaucratic friendships, not natural but forced interplay. They're trying to creaU a brotherhood." 
+
+The Greek system does provide its members with an organized structure for creating a social network, but what about the Yale student who does not want to feel pressured into joining a fraternity or sorority? What viable alternatives will there be for next year's freshman class? Though students have been asking for some sort of center for years, it seems as though one won't be materializing in the near future. "In effect we do have a student center . . . CCL!" Wilkinson said, laughing. "Ten or fifteen years ago we did try to have one in a corner of Commons, but it flopped; it was a much larger and more sophisticated version of Durfee's- a disaster," he explained. "The more ideal thing-pie in the sky-would be a centrally-located facility, the home for the hundreds of student organizations. Then students would have a purpose for going there. It's a remote possibility right now, for lack of space and funding, but I'm convinced that anything that's a good idea will happen eventually." 
+
+In the fall of 1984, when several students got together and decided to found Sigma Nu, they were not interested in waiting for the appearance of Yale's "eventual" student center. Today, with approximately 60 members. the fraternity leases a house on Lake Place. John Miles, DC '88, a Sigma Nu brother, imagined what Yale will be like in five years. "I see more fraternities-a whole row of them behind the gym. It's close to campus and the houses are affordable." He paused for a moment, beginning to smile. "There will be a bunch of frat parties every weekend instead of a few SAC parties like there used to be. If the administration continues not to have any social events on campus, Lake Place will become Yale's new social center." 
+
+Tamar Lehrich is managing editor <ifTNJ.

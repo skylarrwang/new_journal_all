@@ -1,0 +1,45 @@
+Publication date: 04/87
+Volume 19, Issue 6
+
+**Annual End of School Champagne Sale**
+**Author: Unknown**
+**Page number(s): 22**
+
+EXTRACT ARTICLE CONTENT:
+ANNUAL 
+END OF SCHOOL 
+CHAMPAGNE SALE 
+MOET & CHANDON 
+BRUTN.Y. 
+21.49 
+BOLLINGER 
+PER RIERJOUET 
+DEUTZ 
+18.99 
+12.99 
+VEUVE CLICQUOT 2.3 .99 
+YELLOW LABEL 
+SPARKLING WINES 
+ON SALE 
+CODOR NIU 
+4.99 
+BRUT CLASS! CO 
+SEGURA VIUDAS 
+PAUL C HENEAU 
+5.99 
+BLANC DE BLANCS 
+FREXENET 
+CORDON NEGRO 
+MART INI & ROSSI 
+9.79 
+ASTI SPUMANTE 
+FOLONARI 
+()<!)in's 
+t)ottte 
+5t)op 
+ONE WHITNEY AVE. 
+562-7714 
+22 The New Journal/April 17. 1987 
+
+
+<br/>

@@ -1,0 +1,24 @@
+Publication date: 11/23
+Volume 46, Issue 2
+
+**Title: an extraordinary trajectory**
+**Author: Caleb Dunson**
+**Page number(s): 43**
+
+EXTRACT ARTICLE CONTENT:
+an extraordinary trajectory: university awards, club leadership positions, and summer fellowships.
+
+Back home for the holidays with my extended family gathered in our living room, I explained how getting an internship at Goldman could set us up financially for life. The days spent feeling my heart sink as I walked past partners’ offices with floor-to-ceiling windows to get to my desk, and the evenings spent wandering down Lafayette street fighting back tears were not worth mentioning. I told my family about how being one of the first two Black opinion editors at the school newspaper was an act of legacy-building––leaving out the endless evenings of lost sleep and subsequent exhaustion. To win and keep their love, I measured myself by these accomplishments. I let their visions of ivy-covered walls and centuries-old castles give me an air of intelligence and distinction I could not create with honesty. There was no space in those stories for my real self. That was relegated to private conversations with my mother and grandmother, met sometimes with sympathy, and others with the suggestion that if I just kept working, kept accumulating achievements, the pain would be worthwhile.
+
+I was hollow when I left for England. Throughout college, I had made no genuine effort to find myself, and I thought that leaving the US would finally give me the chance to do that. I imagined Baldwin in Europe, away from Harlem and unburdened by American racism, free enough to begin thinking, really thinking, about his life and the world in earnest. I imagined the same would happen to me. I expected my pain to dissolve with the weight of familial expectations, and expected I’d then grow into a fuller, more complex, self. But Oxford is not a place you go to to leave expectations behind.
+
+Walking past sprawling Gothic colleges and into centuries old libraries reminded me that I was in a place of distinction, where heads of state went to be educated. Tutorials that required weekly 2000-word essays and hour-long debates with my professors reminded me that Oxford prized displays of academic rigor. Hearing students talk about their colleges’ multi-course formal dinners held in grand dining halls and opulent formal dances held at the Oxford Union reminded me that polish and manners separated the simply brilliant from those destined to lead.
+
+Here, unable to reach familiar markers of significance, I recognized my hollowness. This placed me on my back, in my bed, at two a.m., fighting nightmares. Afraid of truly reckoning with myself, I instead sought the markers of success my new environment demanded. I acted as I thought a true intellectual might, spending hours at a time poring over books and papers under the high domed ceiling of the Radcliffe Camera. Trying to appear as cultured and well-traveled as my peers, I dragged across the continent on days I should have been resting. I thrifted button ups, wool sweaters, and corduroy pants in my attempt to cast myself as an Oxford student. With these experiences, I could perform enlightenment, say to my family that my time abroad had changed my perspective on the world. I could tell them stories, and they could tell those stories to their friends, and we could all remain comfortable in the lie that I was, am, doing well.
+
+
+On the drive from the Hartford airport to New Haven, my pain and anxiety built as the campus’ Gothic buildings came into view. By the second week of this semester, my insomnia was back. I tried to ignore my pain and continue demanding excellence of myself, applying for postgraduate fellowships to return to Oxford and continue the lie. By the end of the first month, I was dealing with headaches, dizziness, and blurred vision. I did not get those fellowships, and I am still in pain.
+
+I have no advice to give from my time abroad. I am a senior now, and I am realizing that I cannot recover the experiences I denied myself during my time here. In those hours I am awake––two, three, four a.m.––I now think about what college would have been if I had not lied, pretending to love what I do not. What I am left with, though, is this essay, my attempt at telling the truth. By putting pen to paper I am making myself and what I want more permanent. I am resisting letting expectations collapse my identity. And I am finally contending with the realization that I am far from where I want to be, still very much unknown to myself.∎
+Caleb Dunson is a senior in Saybrook College.
+illustrations by sarah feng
