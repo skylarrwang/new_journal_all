@@ -1,5 +1,5 @@
 ## General Setup Instructions
-Note that the following are descriptions of the scripts/code we ran to build our entire pipeline. To use and see the results of our pipeline, please access our service at: https://new-journal-theta.vercel.app/, or refer to this github repo to host locally: https://github.com/skylarrwang/new-journal-archive.
+Note that the following are descriptions of the scripts/code we ran to build our entire pipeline. To run our pipeline, refer to this github repo for local hosting: https://github.com/skylarrwang/new-journal-archive. Alternatively, please access our service at: https://new-journal-theta.vercel.app/.
 
 To replicate the construction of our pipeline, follow the instructions below:
 
