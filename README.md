@@ -31,7 +31,7 @@ The `/pipeline/` folder contains the key processing scripts that convert the arc
 Other relevant processing scripts and data are in the `/other_preprocessing/` folder. The `all_links.csv` file contains links to each of the TNJ issue PDFs in a Google Drive folder, which we needed in order to embed the PDFs on the website. The extract_authors.py script scrapes the entire `all_article_chunks.json` for all of the author names, eliminates bad/useless names, and combines different versions of the same name into a single entity for better use in searching. Finally, `integrate_links.py` will take `all_links.csv` and put the correct issue link in the metadata for each chunk in `all_article_chunks.json`, based on the volume and issue number metadata contained in the chunk.
 
 #### Accessing Chunks
-The `all_article_chunks.json` contains the complete list of chunks with metadata.
+Download the`all_article_chunks.json` at: https://drive.google.com/file/d/19YgspHKLaGw21KM2skgPA8uP2ratp-mx/view?usp=sharing, which contains the complete list of chunks with metadata.
 
 #### Computing Vectors
 We've already computed all the vectors for you and associated metadata, which are included in the json file called `all_article_chunks.json`. To recompute/replicate these computations, run the scripts in the notebook found in: `chunking/compute_embeddings.ipynb`
